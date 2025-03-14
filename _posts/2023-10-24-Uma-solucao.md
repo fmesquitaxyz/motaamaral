@@ -1,0 +1,27 @@
+---
+layout: default
+title: "Uma solução para o conflito israelo-palestiniano "
+date: 2023-10-24
+author: "João Bosco Mota Amaral"
+---
+# Uma solução para o conflito israelo-palestiniano
+
+Estou deveras horrorizado com as imagens de destruição, morte e sofrimento de pessoas inocentes, que todos os dias me entram pela casa dentro através da televisão, provenientes da Faixa de Gaza. Se Israel tinha razão para reagir por ter sido atacado com tanta crueldade pelos terroristas do Hamas, parece-me que a está perdendo por excesso de legítima defesa, ao manter bombardeamentos indiscriminados sobre alvos civis, sob pretexto de que só pretende atingir as sedes do Movimento que se lhe opõe e pretende erradicar do território que lhe foi concedido por decisão da Autoridade Internacional competente, a Assembleia Geral da Organização das Nações Unidas, nem mais nem menos.
+
+O ataque de 7 de Outubro foi uma quebra de segurança muito grave por parte das autoridades israelitas e não vi ainda rolarem cabeças dos responsáveis pela incúria. Se é verdade o que por aí corre, que os serviços secretos preveniram o Governo mas este não tomou as devidas precauções, estamos então perante um sério problema político, que envolve responsabilidades ao mais alto nível do Estado.
+
+É dos livros que as operações militares devem ter objectivos concretos e alcançáveis. Ora acabar com o Movimento terrorista matando todos os seus membros não é algo que se possa prometer e muito menos fazer. É que por cada militante terrorista que vier a ser abatido, no meio de destruições tremendas e do injusto sofrimento de tantos inocentes, incluindo velhos, mulheres e crianças, sobretudo estas últimas que são tantas e olham com surpresa e em silêncio os impressionantes cenários de arrasamento de prédios, casas, ruas inteiras, do meio dos destroços saindo mortos e feridos sem conta, vão levantar-se outros com mais ódio e desejo de vingança.
+
+A Comunidade Internacional está começando a cair em si e a voltar atrás relativamente à carta branca inicialmente dada ao governo de Israel para agir conforme lhe aprouvesse. Multiplicam-se os apelos a que sejam respeitadas as leis da guerra e o Direito Humanitário. A isto acrescem apelos ao cessar fogo imediato, à libertação incondicional dos reféns, muitos dos quais são crianças, à ajuda humanitária à população da Faixa de Gaza, injustamente cercada de violência e privada dos bens mais essenciais, a começar pela água.
+
+Além disso parece ter ressurgido a questão dos dois estados, como solução definitiva do terrível e permanente conflito. Não é fácil fazer desaparecer os ódios entre os dois povos, embora tenha havido tentativas valiosas nesse sentido, das quais agora me ocorre destacar a orquestra jovem israelo-palestiniana, promovida por Daniel Barenboim e por Edward Said. Mas é um objectivo digno de ser prosseguido e que há-de dar frutos, ainda que seja a longuíssimo prazo.
+
+Se porventura havia quem pensasse que a questão dos dois estados estava morta e enterrada, ou haveria de sê-lo depois de mais esta guerra de Israel, fortemente apoiado pelos Estados Unidos, contra os seus diversos adversários, forçoso é reconhecer que se enganou. Há mesmo um clamor, que procede de tantas partes do Mundo e de tantos líderes prestigiados, para que se reconheça o Estado da Palestina e sejam proporcionados aos seus legítimos representantes os meios necessários para defender e promover o Povo Palestiniano. Se não estou enganado, até o Presidente dos Estados Unidos já aludiu ao tema.
+
+A solução dos dois estados implica o reconhecimento, por parte também dos estados árabes, de Israel como titular de pleno direito do território que lhe foi atribuído pela ONU. Implica também o respeito por parte de Israel da Palestina como vizinho incontornável e merecedor de ajuda e colaboração; e a devolução dos territórios ilegalmente ocupados em seguimento de anteriores conflitos, incluindo os colonatos confiados a grupos fundamentalistas hebraicos, o que não é tarefa fácil, mas a verdade é que foi tentado e até levado a efeito por um governo israelita anterior, empenhado no projecto de construir a paz cedendo terra.
+
+Já aqui afirmei que os moderados dos dois campos têm de fazer-se ouvir. E a Autoridade Nacional Palestiniana deve assumir o protagonismo que lhe compete. O vigor da Democracia existente em Israel já conheceu melhores dias e não pode ser invocada a existência de tal regime e das liberdades nele implícitas para justificar tudo. No outro campo têm também de fortalecer-se as liberdades cívicas a as instituições democráticas, pondo termo aos autoritarismos ditatoriais, que acabam sempre esmagando as pessoas e os seus direitos inalienáveis.
+
+O Estado de Israel foi criado pela Comunidade Internacional para dar uma pátria aos judeus, no território historicamente detido pelos seus antepassados, e acabar com o anti-semitismo, que tem séculos de duração e a todos nos envergonha. Aos Estados Árabes cabe reconhecer e colaborar na realização de tal finalidade. Por seu turno Israel tem de actuar em conformidade com as decisões da Comunidade Internacional e não se deixar levar pelo impulso de impor os seus interesses próprios, apoiando-se nos Estados Unidos, como garante final da sua alegada sobrevivência, que não pode ser posta em causa por ninguém.
+
+João Bosco Mota Amaral

@@ -1,0 +1,27 @@
+---
+layout: default
+title: "Algumas reflexões sobre as crises políticas em curso"
+date: 2023-11-14
+author: "João Bosco Mota Amaral"
+---
+# Algumas reflexões sobre as crises políticas em curso
+
+A primeira ideia que me ocorreu quando começou a esfrangalhar-se a posição dominante do PS no plano nacional, com a queda do Governo e a dissolução do Parlamento pelo Presidente da República, foi a transitoriedade do poder político nas sociedades democráticas. Quando tudo parecia correr bem ao partido maioritário, com posição dominante na Assembleia da República e um Executivo inabalável a “casos e casinhos”, alguns com foros de verdadeiros escândalos, eis que surge uma crise, arrastando em voragem todos os sonhos de perenidade, habilmente concebidos para condicionar as forças políticas da Oposição.
+
+A “hubrys” socialista já tinha mesmo arrumado o poder presidencial, desafiando permanentemente o Presidente Marcelo, seja com a manutenção em funções de um membro do Governo cujo afastamento fora por ele preconizado, seja com a total confirmação parlamentar de um diploma controverso por ele vetado. Quanto à Oposição, era tratada, no Parlamento e fora dele, sem grandes cerimónias, estabelecendo-se “linhas vermelhas” a talante do PS e dos seus antigos aliados dos tempos da tão celebrada colaboração das várias forças ditas de esquerda, para condicionar qualquer remota hipótese de aproximação e futura colaboração entre as suas várias componentes, exprobadas como sendo todas de direita e mesmo de extrema-direita.
+
+De repente tudo mudou... O Governo está demissionário, o PS está sem líder e iniciando o processo de escolha de um novo e o Presidente da República recuperou o seu papel central no funcionamento do nosso regime democrático. Os partidos da Oposição movimentam-se para se prepararem para eleições, deitando para trás das costas veleidades de mudanças de líder, até aqui alimentadas com a colaboração sempre ávida de certos meios de comunicação social, especializados na especulação em benefício objectivo do PS.
+
+“Sic transit gloria Mundi!” dizia-se antigamente, quando ainda se sabia alguma coisa de latim...Mas o alerta mantém-se para quem pensa que o Poder pode ser mantido indefinidamente em Democracia, esquecendo o efeito salutar da alternância e da própria temporalidade da adesão popular.
+
+Não consigo, porém, concordar com a marcação das eleições para uma data tão remota! Assente que o PS se afasta do Governo, com a atitude elegante de António Costa, em defesa da dignidade das instituições, e da sua posição de maioria absoluta no Parlamento, exercida com óbvias cedências à tentação do poder absoluto, impunha-se dar a palavra ao Povo Soberano o mais depressa possível. O argumento de que convirá dar tempo para aprovar o Orçamento para 2024 não me convence, pela razão simples de que o Governo a formar depois das eleições terá porventura opções diferentes e vai ter de alterar o diploma que agora se pretende aprovar. E um Governo demissionário a prazo não hesitará em aprovar e fazer aprovar, na Assembleia que vai ser dissolvida, diplomas favoráveis à futura campanha eleitoral do partido com que está vinculado, deixando para o Presidente da República o odioso de ter de os vetar.
+
+Que o PS e os seus principais dirigentes pretendiam manter-se no Poder ficou comprovado com a trapalhada dos contactos com um possível novo Primeiro Ministro (e logo o bem conhecido “Mago das Cativações Orçamentais” e auto indigitado Governador do Banco de Portugal, nem mais nem menos...) e com o empate na votação feita no Conselho de Estado. É com muita mágoa, aliás compreensível, que o PS se encaminha para as eleições, impostas por decisão do Presidente da República. Uma cura de Oposição é sempre vantajosa para quem por ela passa e o Poder cansa e desgasta - para além de corromper, como avisavam os antigos, acrescentando que quando é absoluto então corrompe absolutamente.
+
+Não estava prevista a realização de eleições legislativas nacionais no começo do próximo ano. Bastava já, para o preencher de chamadas dos cidadãos às urnas, haver eleições para o Parlamento Europeu em Junho e as nossas eleições legislativas regionais lá para Setembro ou Outubro. Ora, esta alteração do calendário vem colocar-nos perante um cenário de três actos eleitorais, com curto espaço de tempo de intervalo entre eles, na Região Autónoma dos Açores, em 2024. Temo que daí possa resultar maior abstenção, aumentando o risco relativamente ás eleições mais afastadas no tempo, logo por azar as nossas, em virtude do cansaço dos cidadãos eleitores.
+
+Julgo por isso que talvez valha a pena equacionar a hipótese de juntar as nossas eleições a alguma das outras, possivelmente às europeias, o que até seria benéfico em termos de participação e tendo em conta o histórico do nível de abstenção, deveras vergonhoso, nessas mesmas verificadas em ocasiões passadas. Quer-me parecer que o ideal de estabilidade não ficaria muito afectado por uma antecipação das eleições regionais de apenas três ou quatro meses.
+
+No caso, porém, de a demissão do Governo Regional ser apressada pela aprovação na Assembleia Legislativa de uma moção de censura, subsequente à já anunciada rejeição do Orçamento, e da qual se tem falado dubitativamente, então talvez fizesse sentido juntar as eleições legislativas regionais às nacionais e resolver tudo de uma só vez, nos dois âmbitos e coerentemente. 
+
+João Bosco Mota Amaral

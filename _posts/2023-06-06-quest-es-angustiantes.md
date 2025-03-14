@@ -1,0 +1,29 @@
+---
+layout: default
+title: Questões angustiantes
+date: 2023-06-06
+---
+# Questões angustiantes
+
+Tenho-me interrogado muitas vezes sobre quais serão as razões por que o nosso País continua na cauda da Europa em termos de desenvolvimento económico, social e cultural, ao fim de quase quatro décadas de participação no processo de integração europeia. E, pior ainda, como é possível que, ano após ano, vá sendo ultrapassado por outros países que aderiram posteriormente à União Europeia e se encontravam antes disso em posição mais atrasada do que Portugal, alguns deles tendo sido mesmo dominados e explorados de má maneira pelo imperialismo russo desde o fim da II Guerra Mundial e até à queda do Muro de Berlim, ou seja quase durante meio século.
+
+Cálculos aproximados contam quase cem mil milhões de ajudas comunitárias a fundo perdido recebidas pelo nosso País desde que faz parte da UE. Isso é um montante deveras fabuloso! Creio já ter mencionado aqui a minha conversa com o então Primeiro Ministro Aníbal Cavaco Silva, na qual comparei as ajudas previstas à época na aplicação dos fundos comunitários aos recursos provenientes da pimenta da Índia ou do ouro do Brasil, recebendo em resposta que melhor era não fazer essa comparação porque tais recursos não levaram Portugal a desenvolver-se, até antes pelo contrário... Ora, parece que devemos concluir que o mesmo afinal está acontecendo com tão substancial ajuda europeia!
+
+Há qualquer coisa errada na nossa governação democrática e ainda não identifiquei qual. Temos um regime democrático a funcionar, com todas as garantias, incluindo a alternância governativa dos dois maiores partidos. Há linhas de rumo que têm sido mantidas ao longo do tempo, em matéria europeia e de defesa nacional, por exemplo, apesar da dita alternância e da diferente composição partidária dos governos e dos seus apoios parlamentares. Mas a verdade é que Portugal não há maneira de descolar dos últimos lugares da lista dos últimos...
+
+Nos tempos mais recentes tem-se procurado quebrar o pessimismo reinante com a indicação de dados económicos positivos, em termos macroeconómicos e ainda bem que a economia está recuperando mais depressa agora do que em países mais avançados, que as exportações estão crescendo e tocam já nos 50% do PIB, que a inflação vai baixando e que o défice das contas públicas e a dívida do Estado seguem o mesmo caminho. Mas, como tem sublinhado o Presidente Marcelo, as pessoas não estão sentindo melhorias no seu nível de vida e a chamada classe média segue por um caminho de empobrecimento. Acresce que o acerto das contas públicas se tem conseguido à custa de sucessivos cortes nas despesas de investimento e por isso a saúde, a educação e os outros serviços prestados pelo Estado sofrem de enormes carências. Sobre as Forças Armadas melhor é nem falar, porque estamos a aproximar-nos de uma situação de ruptura, que põe em causa o bom nome e a própria segurança do nosso País.
+
+Num quadro destes, que está tendo por consequência imediata o aumento da emigração de gente nova e qualificada, em busca de melhores salários e perspectivas de futuro, a situação dos Açores, como Região Autónoma da República Portuguesa,  tem grandes dificuldades em diferenciar-se, mais ainda quando as opções correntes na opinião pública vão todas no sentido de uma integração cada vez maior no todo económico nacional, reclamando sempre igualdade de preços, mesmo que anulem as nossas poucas vantagens competitivas, e subsídios públicos para tudo e mais alguma coisa.
+
+Cálculos também aproximados indicam que as nossas  Ilhas terão recebido perto de cinco mil milhões de euros de ajudas europeias a fundo perdido no mesmo período já indicado. Em capitação tal corresponde ao dobro do valor nacional, dando resposta à nossa condição insular e ultraperiférica. O estatuto de região ultraperiférica da União Europeia, pelo qual tanto se  lutou nos primeiros vinte anos da nossa Autonomia Constitucional, está pois revelando as suas vantagens e o seu valor de precioso legado desses tempos fundacionais, que alguns fingem ignorar e outros agem como se não tivessem existido...
+
+E no entanto a verdade é que ainda nos falta muito para sairmos do nosso atraso ancestral e termos nos Açores uma sociedade mais rica e mais igualitária, sem sinais de pobreza, sobretudo cultural e até mental, e neste caso estou abrangendo a terrível expansão do consumo de drogas, inclusivamente das sintéticas.
+
+Tem-se falado nos últimos tempos com insistência da falta de resposta do Governo da República no tocante às suas responsabilidades directas na Região e ainda no diálogo com o Governo Regional, despromovido agora, conforme denunciou e repudiou, muito oportunamente, o Presidente José Manuel Bolieiro, ao nível das Comissões de Coordenação das regiões administrativas do território continental da República, que parece aliás estarem a ser criadas na sombra e contra a vontade expressa em referendo do Povo Português.
+
+Sabe-se que o Presidente Bolieiro já abordou o tema em plenário do Conselho de Estado; é de presumir que não deixará de insistir nele na reunião do órgão consultivo do Presidente da República já anunciada para fazer o ponto da situação dos problemas do nosso País, antes das férias de Verão. A plena realização da Autonomia Constitucional é sem dúvida um dos maiores objectivos do desenvolvimento e da coesão nacionais e o Presidente da República tem de assegurar quanto a ele, devidamente alertado, a sua poderosa magistratura de influencia.
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

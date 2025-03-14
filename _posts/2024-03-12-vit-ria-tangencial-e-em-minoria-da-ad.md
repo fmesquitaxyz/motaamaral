@@ -1,0 +1,29 @@
+---
+layout: default
+title: Vitória tangencial e em minoria da AD
+date: 2024-03-12
+---
+# Vitória tangencial e em minoria da AD
+
+Teve um certo sabor amargo a vitória nacional da AD nas eleições legislativas de Domingo passado. O PS foi copiosamente derrotado, caindo da maioria absoluta de 120 Deputados que detinha na Assembleia da República para a liderança da Oposição com cerca de 80, partindo do princípio que ainda irá eleger algum nos círculos eleitorais da Emigração. Mas o grande vencedor das eleições foi de facto o Chega, que triplicou o número de votos populares recebidos e quadruplicou o seu Grupo Parlamentar, ficando à beira dos 20% dos sufrágios e com mais de um milhão de apoiantes, tal como em tempos aconteceu com outro partido de protesto, o PRD.
+
+A AD obteve uma maioria tangencial, em percentagem dos votos obtidos e em número de Deputados eleitos, em relação ao derrotado PS. Sei bem, por experiência, como é frustrante uma tal situação de maioria tangencial, porque também por aí passei, nas eleições legislativas regionais de 1988... Mas  então ainda assim o PSD/Açores ficou com maioria absoluta dos Deputados no Parlamento Açoriano, embora a mesma se viesse a desfazer posteriormente. Agora a AD tem apenas uma maioria relativa e nem sequer a reforça sensivelmente com qualquer entendimento com a IL, que por isso me parece inútil e portanto de todo desaconselhável.
+
+Pelo que logo se ouviu dos vários líderes nacionais dos partidos, não está em causa a investidura parlamentar do Governo, que o PS prometeu não inviabilizar, apresentando ou votando uma qualquer moção de rejeição do respectivo Programa; do mesmo passo, foi logo avisando que não apresentasse o Governo qualquer moção de confiança, porque o PS votaria contra.
+
+Mas já nada ficou garantido quanto à aprovação das propostas governamentais, desde logo as fundamentais para assegurar a governação, constantes do Orçamento do Estado. Caberá então ao Governo negociar no Parlamento o necessário apoio, e isso passará talvez  por entendimentos com o Chega, que não estou a ver qualquer outro modo de obter a necessária maioria de votos, mesmo recorrendo aos bons serviços dos sempre prestáveis IL, LIVRE e PAN, que do BE e do PCP/CDU não são de esperar quaisquer cedências a uma solução governativa já exautorada como sendo de "Direita"...
+
+O grande desafio subsequente do incontestado líder da AD, Luís Montenegro, é apresentar uma equipa para o Governo, que seja formada por pessoas capazes e com créditos firmados na sociedade portuguesa. Não será tarefa fácil, porque, infelizmente, as expectativas são baixas quanto à duração do próximo Executivo. Logo que qualquer dos partidos políticos grandes da Oposição, PS ou Chega, se sentirem com força para enfrentar um novo acto eleitoral, julgo que não terão grandes dúvidas para deitar o  Governo ao chão. E nisso a experiência ensina que não haverá escrúpulos de parte alguma para uma votação conjunta, por mais lancinantes apelos que sejam formulados. 
+
+O novo Governo pode tentar manter entendimentos com o PS continuando as políticas pelo Executivo de António Costa prosseguidas, que muitos aliás diziam ser afinal as do PSD. As contas certas , em prejuízo dos salários e do investimento estrutural necessário ao bom funcionamento dos Serviços Públicos, nomeadamente da Saúde, Educação, Segurança e Defesa, para só nomear os mais relevantes, ficam sendo a marca de água da gestão recente do PS. Claro que a consequência está à vista de todos, com a derrota eleitoral agora verificada e antes disso com o País em revolta com constantes greves e manifestações de repúdio e  reivindicação. Se o Governo da AD for por aí, já sabe o que o espera!
+
+Mas a expectativa é de mudança e foi nisso que votou o eleitorado da AD, que afinal verifica-se ser fundamentalmente o do PSD dos momentos duros, os "laranjinhas " de sempre, a acreditar na comparação dos resultados de Domingo passado com os de anteriores eleições em que o PSD concorreu sozinho. Enfim, deu-se "boleia" ao CDS para que pudesse regressar ao Parlamento e logo com a possibilidade de constituir um Grupo Parlamentar, o que não é nada de desprezar, como se viu pela festa que agora fez o Livre. E já estou a ver o PSD a ceder lugar elegível na lista para o Parlamento Europeu a algum destacado centrista, sedento de altos voos, à custa das sempre castigadas Regiões Autónomas...
+
+Por cá, a AD teve a melhor vitória de todo o nosso País! Mérito do seu líder, José Manuel Bolieiro e da lista apresentada, encabeçada por Paulo Moniz. O PS, por seu turno, perdeu o quinto Deputado para o Chega e Miguel Arruda já se comprometeu a ir para São Bento "gritar", foi a palavra que usou, pelos interesses dos Açores. Aliás, neste ponto da defesa intransigente dos interesses da nossa Região Autónoma todos os Deputados eleitos se comprometeram sem reservas. O que significa uma mudança relativamente aos do PS, com insistência acusados de se manterem calados perante decisões do Governo da República, da responsabilidade do seu partido, contrárias aos interesses dos Açores. Quanto aos do PSD, tal proclamação, reforçada pelo próprio José Manuel Bolieiro, deixa antever a previsão de tempos difíceis no relacionamento entre os dois Governos, tantas são as reclamações a que será preciso atender, incluindo as dos militares que já falaram em sair à rua, talvez lembrados dos 50 anos da Revolução do 25 de Abril.
+
+No presente panorama político nacional, onde ficará a urgentíssima revisão da Lei das Finanças Regionais? E quanto à revisão constitucional, é melhor nem falar nisso, tal é a dificuldade em obter os dois terços do número dos Deputados para qualquer alteração, por mínima que seja, e o que é preciso é mesmo de fundo, para assegurar a governabilidade da Região e o futuro da nossa Autonomia Política.
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

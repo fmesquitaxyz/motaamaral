@@ -1,0 +1,31 @@
+---
+layout: default
+title: João Salgueiro
+date: 2023-02-21
+---
+# João Salgueiro
+
+Faleceu, no final da semana passada, um dos economistas mais distintos da sua geração, formado ainda no tempo em que essa Ciência dava entre nós os seus primeiros passos. João Salgueiro era oriundo do Norte de Portugal, mas foi em Lisboa que viveu a sua intensa e longa vida, sempre entusiasmado com os problemas do País, para os quais se empenhou, mediante uma destacada participação cívica, em encontrar solução, tendo sempre em vista a melhoria das condições do Povo Português.
+
+Travei conhecimento com ele ainda antes do 25 de Abril, quando exerceu, por pouco tempo, as funções de Subsecretário de Estado do Planeamento, no Governo de Marcelo Caetano. João Salgueiro era um dos mais jovens dos chamados "tecnocratas", trazidos ao Governo num esforço de renovação, que veio depois a revelar-se infrutífero, do ponto de vista político, que não do ponto de vista puramente económico, pois é certo que a acção deles se traduziu numa notável aceleração do crescimento da economia portuguesa, depois disso raras vezes igualado.
+
+Mais tarde encontrámo-nos novamente militando nas fileiras do PSD, ainda nos tempos da fundação do Partido, sob a dinâmica liderança de Francisco Sá Carneiro. João Salgueiro era tido como especialista de mérito nas questões económicas e como tal a sua palavra era escutada com atenção e interesse.
+
+Foi certamente por ter isso em conta que Francisco Balsemão o levou para o Governo, quando assumiu o cargo de Primeiro Ministro, após o malogrado desaparecimento do Fundador do PSD, destinando-lhe o título de Ministro de Estado e das Finanças. A hora era de dificuldades, tanto no domínio político, com alguns descontentes a fazerem o inferno dentro do PSD, como no económico, onde se impunham medidas de rigor para equilibrar as contas públicas, após algum facilitismo do primeiro mandato da Aliança Democrática.
+
+No que toca particularmente à vivência da Autonomia Constitucional dos Açores,  João Salgueiro esteve sempre em sintonia com a orientação de Francisco Balsemão , que era de dar pleno cumprimento aos preceitos decorrentes da Lei Fundamental e do Estatuto Político- Administrativo da Região Autónoma, aprovado pela Assembleia da República, com pontos e vírgulas, tal como tinha sido proposto pela Assembleia Regional, facto, relembro eu, sem precedentes na História de Portugal, no tocante às relações com os territórios situados fora da Metrópole, e infelizmente também sem repetição.
+
+Assim, às verbas previstas do Orçamento do Estado para as Regiões Autónomas passou a acrescer uma outra, especial, destinada aos Açores, no valor de um milhão e meio de contos, com a finalidade de atender aos sobrecustos da insularidade, conforme determinação contida no mencionado Estatuto. Foram ainda mantidas as responsabilidades assumidas pelo Governo de Francisco Sá Carneiro, aliás com o envolvimento directo de Francisco Balsemão desde a primeira hora, relativamente à Reconstrução dos estragos causados pelo grande Terramoto de 1 de Janeiro de 1980.
+
+João Salgueiro e eu próprio estivemos sempre com Francisco Balsemão nos duros combates políticos que foi preciso travar contra os já aludidos descontentes, que foram alargando a sua acção, iniciada dentro do Partido, para o seio da Coligação de Governo, formada com o CDS, o PPM e alguns independentes, dos quais se destacavam António Barreto e José Manuel Medeiros Ferreira, sob a liderança do PSD. O combate contra Francisco Balsemão era conduzido também a partir de alguma imprensa comprometida, como "O Diabo", onde se publicavam as diatribes de um tal Agapito Pinto, substituído por Agapito Pinto Filho, óbvios pseudónimos, e o "Semanário", este formado expressamente com tal objectivo e para ultrapassar o "Expresso", sonho vão acalentado depois pelo "Independente", ambos esses títulos já desaparecidos.
+
+Evoco agora a viagem de regresso dos Estados Unidos, onde ambos fomos acompanhar o Primeiro Ministro na sua visita oficial a Washington, a convite do Presidente Ronald Reagan. Vínhamos no Boeing 747 da TAP e, no salão privado do andar de cima, soubemos que Francisco Balsemão tencionava anunciar a sua demissão logo em chegando a Lisboa, farto dos ataques e traições que lhe faziam até alguns Membros do Governo, ansiosos por promoverem Diogo Freitas do Amaral para lugar cimeiro. Ainda tentámos dissuadi-lo de tal propósito, mas, perante a firmeza da sua resolução, só nos restou tentar convencer João Salgueiro a assumir o cargo, o que ele recusou. Vinha connosco o Ministro dos Negócios Estrangeiros, Vasco Futscher Pereira, que eu tinha conhecido tempos antes como Embaixador em Washington, depois de uma passagem pela ONU, onde tinha ocupado com distinção o lugar ganho, pela primeira vez, por Portugal no Conselho de Segurança; sondado para Primeiro Ministro, logo ali recusou peremptoriamente.
+
+Anos mais tarde, após a demissão e até morte de Carlos Mota Pinto, infernizado pelos "jovens turcos" da auto-proclamada "Nova Esperança", apostados no fim do Bloco Central então existente, de novo estivemos juntos, João Salgueiro e eu, no Congresso da Figueira da Foz, na mira de travar o apoio prometido formalmente por Cavaco Silva e seus adeptos à candidatura de Diogo Freitas do Amaral a Presidente da República, em benefício de uma candidatura autónoma do PSD. João Salgueiro perdeu a eleição para Presidente da Comissão Política  Nacional por um punhado de votos, mas a lista que eu encabecei venceu a eleição para o Conselho Nacional do Partido. De bem pouco nos valeu! O vencedor da Figueira veio a conquistar, em eleições livres e justas, quatro maiorias absolutas nacionais, duas como  Primeiro Ministro e duas como Presidente da República, marca dificilmente superável e de facto até hoje não superada.
+
+Mantive sempre com João Salgueiro excelentes relações, nos últimos tempos, infelizmente, não muito frequentes. É com pesar que assinalo o seu falecimento!
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

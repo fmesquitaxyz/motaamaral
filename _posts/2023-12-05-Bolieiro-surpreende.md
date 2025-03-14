@@ -1,0 +1,26 @@
+---
+layout: default
+title: "Bolieiro surpreende"
+date: 2023-12-05
+author: "João Bosco Mota Amaral"
+---
+#  Bolieiro surpreende
+
+O Presidente do Governo surpreendeu toda a gente ao deixar cair a ideia de fazer um novo Orçamento para submeter à Assembleia Legislativa e reclamar, perante o Presidente da República, a dissolução da mesma e a realização de eleições gerais antecipadas. Por mim devo declarar que não estava à espera disso, mas congratulo-me vivamente com o passar da palavra ao Povo Açoriano, para que se pronuncie sobre a crise política instalada e escolha os caminhos do seu futuro para os próximos quatro anos.
+
+Nos tempos mais recentes, José Manuel Bolieiro tem vindo a dar-nos surpresas seguidas e isso é bom! Foi o cartaz de apresentação do “nosso Presidente”; foi a intensificação do seu protagonismo por toda a nossa Região Autónoma; foi a apresentação de projectos concretos para serem realizados nas várias ilhas, incluindo São Miguel, que parecia andar um pouco esquecido dos cuidados do Governo; foi a insistência no seu papel como crucial referente da estabilidade governativa regional; foi o seu público compromisso com a solução política em vigor, que inclui a coligação liderada pelo próprio e pelo PSD com o CDS e o PPM; foi sei lá que mais...
+
+O Presidente do Governo soltou-se da imagem que se lhe pretendeu colar de hesitação e até de temor reverencial perante os seus parceiros, no esquema político por ele próprio engendrado, com grande habilidade, para afastar, após 24 anos de governo consecutivos, o PS do Poder. Em vésperas de eleições decisivas é fundamental saber quem manda e isso Bolieiro já não deixa lugar a dúvidas!
+
+Todos os cidadãos ganham com tal clarificação. Não era bom que se alimentassem dúvidas sobre o papel liderante do nosso Presidente. E para acabar com tais dúvidas todos devem dar a sua prestimosa colaboração, cada um no lugar que desempenha na cena política actual. As ânsias excessivas de visibilidade podem deitar tudo a perder. E o que sobretudo interessa é sublinhar o trabalho conjunto, como de resto fazem, muito de caso pensado, quero crer, os Deputados do PSD/Açores, que sempre começam por referir, ao enumerar as coisas boas que o Governo tem feito, os benefícios sociais dirigidos aos mais pobres e aos idosos.
+Que o desafio não é fácil, é ponto em que estaremos todos mais ou menos de acordo. Há no ar um certo cansaço da política e dos políticos e uma vaga de descrédito corre sobre ambos. Julgo que há culpas várias na origem desse mal-estar, mas uma parte grande deve ser assacada a comportamentos erróneos dos actores em cena e de quem os acompanha, parecendo cultivar o gosto de por em evidência as suas fraquezas e insucessos.
+
+Felizmente entre nós não têm pululado, ao contrário do que se vê no plano político nacional, os casos de corrupção, ou pelo menos as suspeitas sobre a existência de tal flagelo; o mesmo se diga das greves constantes nos transportes, nas escolas e nos hospitais. Sob estes pontos de vista a Autonomia Constitucional tem servido de barreira protectora ao sossego do Povo Açoriano.
+
+Mas a opção feita por ir a votos em coligação, afastando a hipótese de fazer acertos só após o veredicto das urnas, traz consigo dificuldades inevitáveis, que não podem nem devem ser ignoradas. Os votos de cada partido não se transferem automaticamente para a coligação, como aliás já foi possível verificar e até na vigência da actual, se bem que estivessem em causa eleições nacionais e as próximas vão ser regionais. A mensagem de mobilização dos eleitores e das eleitoras tem de ser muito clara: trata-se de optar por dar a possibilidade de prosseguir um caminho já testado e com frutos, ou então de voltar para trás, chamando de novo ao Poder os seus antigos detentores!
+
+Dou de barato que os erros cometidos de início não vão ser repetidos, por serem imputáveis à natural inexperiência no desempenho dos cargos governamentais. Deve ficar cristalmente claro que há um só Governo para toda a Região Autónoma e não se registam feudos atribuídos a uns ou outros, sem curar de saber da respectiva representatividade local, que por vezes nem sequer existe. Presidente há só um; Bolieiro e mais nenhum!
+
+Julgo que o Povo está bem esclarecido sobre as causas da presente crise e não deixará de responsabilizar os seus fautores. Não merece confiança quem foge às suas responsabilidades e se escapole aos compromissos assumidos por escrito no momento que julga mais vantajoso para se alcandorar à posição de nada ter a haver com o esquema que apoiou ao longo da Legislatura. Está-nos fazendo falta, também no plano nacional, uma norma como a vigente em democracias inquestionavelmente maduras, como a da Alemanha, afastando do Parlamento as correntes políticas que não logrem alcançar um determinado grau de apoio popular, expresso em votos obtidos em eleições livres e justas. O excesso de democraticidade pode ser tão tóxico para as instituições democráticas como a falta total dela. E a governabilidade de um País, ou no nosso caso de uma Região Autónoma, deve prevalecer sobre os preclaros gozos dos que se consideram iluminados para determinar o Poder, sem para tal disporem de mandato popular suficiente. 
+
+João Bosco Mota Amaral

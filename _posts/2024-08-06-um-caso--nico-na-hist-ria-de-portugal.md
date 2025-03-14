@@ -1,0 +1,31 @@
+---
+layout: default
+title: Um caso único na História de Portugal
+date: 2024-08-06
+---
+# Um caso único na História de Portugal
+
+O nosso País é, como todos sabemos, um dos mais antigos países da Europa, com fronteiras definidas e firmadas no Continente Europeu desde o século XIII. As grandes viagens marítimas de descoberta levaram ao estabelecimento de sucessivos impérios coloniais, primeiro em Marrocos, depois no Oriente, a seguir no Brasil, por fim em África. Todos se esboroaram, não sem ter permitido que ocorressem episódios de exploração, que hoje profundamente lamentamos, dos quais se destaca o horrendo tráfico negreiro, profundamente por mim deplorado, quando estive na qualidade de Presidente da Assembleia da República em Angola, no discurso então proferido perante a Assembleia Nacional Popular daquele país.
+
+As relações de Portugal com os seus territórios ultramarinos pautaram-se sempre por um forte impulso centralizador, conforme com as ideias políticas colonialistas na época dominantes. A transferência de poderes para entidades saídas do voto popular nesses vários territórios foi sempre contida e reduzida ao mínimo, quando não formalmente negada, como aconteceu com as pretensões de governo próprio apresentadas pelos Deputados brasileiros nas Cortes Gerais Constituintes, o que está em linha directa com a declaração de independência do Brasil.
+
+Pude assistir pessoalmente a algumas das derradeiras manifestações do impulso colonialista das entidades nacionais enquanto Deputado na extinta Assembleia Nacional. As propostas governamentais de Autonomia Progressiva e Participada dos territórios africanos eram mal vistas pelos ultras saudosistas do salazarismo; e quando chegaram a Lisboa as propostas de Estatutos Político-Administrativo, votadas pelos respectivos Conselhos Legislativos, foram todas fortemente recortadas.
+
+Lamento ter de dizer que algum saudosismo centralista ainda persiste nas relações entre Portugal e os Arquipélagos Atlânticos dos Açores e da Madeira, apesar da Constituição de Abril os ter elevado à categoria de Regiões Autónomas, dotadas de Estatutos Político-Administrativos e de Órgãos de Governo Próprio. Amargamente me queixei disso mesmo enquanto fui Presidente do Governo Regional e os meus sucessores no cargo também, perante casos concretos de que nem vale a pena falar agora.
+
+Aconteceu, porém, um caso de afirmação açoriana sem precedentes, e também, infelizmente, sem sequência, que convém ressaltar e ter sempre presente. Refiro-me à aprovação do Estatuto da Região, destinado a substituir o Estatuto Provisório, que ocorreu na Assembleia da República em 1980, respeitando integralmente, com pontos e vírgulas até, a proposta elaborada pelo nosso Parlamento Regional.
+
+Recuo à arrancada das novas instituições autonómicas, no seguimento da vitória eleitoral do então ainda PPD nas eleições de Junho de 1976. Considerando a Autonomia Constitucional ainda assim ampla, o Partido assumiu as suas responsabilidades governativas no Parlamento e no Executivo dos Açores. A Assembleia Regional declarou-se instituída em Julho, verificados os poderes dos seus Membros e eleito o seu Presidente, em sessão pública, a que assistiu, a meu convite, o Embaixador dos Estados Unidos em Lisboa, que para o efeito se deslocou expressamente à cidade da Horta, facto que não agradou nada ao Ministério dos Negócios Estrangeiros de Lisboa. Mas passado o vendaval do separatismo açoriano, com efeitos sensíveis nas Comunidades Açorianas da América, convinha muito assinalar que a nova Autonomia dos Açores tinha o suporte também das Autoridades Americanas.
+
+A posse do I Governo Regional verificou-se em Setembro seguinte, uma vez chegado às nossas Ilhas o Ministro da República, entidade competente para proceder à nomeação do mesmo. Logo no discurso então proferido alertei o Povo contra as manobras então em curso para cercear a Autonomia, em nome de um tardio Império Atlântico, formalmente repudiado. O certo é que apesar das bonitas palavras, o Governo então em funções retardou o mais possível os necessários diplomas de transferência de competências e de serviços.
+
+ Foi após a rebarbativa declaração do então MNE da Argélia, ao tempo, salvo erro também Presidente da Assembleia Geral da ONU, sobre a sujeição dos Açores e da Madeira aos princípios anticolonialistas da Organização da Unidade Africana, que o Primeiro Ministro Mário Soares me telefonou  para casa, numa Segunda-feira do Senhor Santo Cristo, quando já estávamos todos os membros da Família a descer as escadas a caminho do arraial, muito preocupado com a possível internacionalização do problema insular e a convidar para uma reunião cimeira dos dois governos a realizar quanto antes em Lisboa. A Cimeira veio a ter lugar no começo de Junho, com um comunicado escrito a quatro mãos pelo Primeiro Ministro e por mim, mas o Governo Central veio a cair no fim desse mês e foi preciso esperar pela chegada de Francisco Sá Carneiro ao poder para que,  numa reunião de igual formato, nas vésperas do 25 de Abril de 1980, fossem finalmente aprovados um lote grande de diplomas fundamentais, entre os quais o que elevava a Universidade a entidade de ensino superior já existente nos Açores.
+
+Estava então já na forja parlamentar o diploma destinado a substituir o Estatuto Provisório da Região. Sob a batuta do então Líder Parlamentar do PSD na Assembleia da República, José Meneres Pimentel, a proposta da Assembleia Regional foi integralmente aprovada. O Conselho da Revolução, com o envolvimento do Presidente António Ramalho Eanes, não levantou qualquer obstáculo e assim se fez a promulgação do desejado Estatuto, que o próprio Presidente da República veio depois entregar  "aos Povos dos Açores", como consta do autógrafo, em sessão solene do Parlamento Açoriano.
+
+Não ficaria a narrativa completa sem a alusão ao facto de a maioria parlamentar que sustentava o Governo da AD na Assembleia da República ser garantida pelos Deputados do PSD/Açores. E que o novo Estatuto antecipava questões que vieram a ser resolvidas na revisão constitucional de 1982.
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

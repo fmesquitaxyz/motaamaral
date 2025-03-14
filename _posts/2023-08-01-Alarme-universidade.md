@@ -1,0 +1,27 @@
+---
+layout: default
+title: "Alarme na Universidade dos Açores"
+date: 2023-08-01
+author: "João Bosco Mota Amaral"
+---
+# Alarme na Universidade dos Açores
+
+Não pode ficar sem eco - e muito forte! - o alerta lançado na semana passada pela Magnífica Reitora da Universidade dos Açores Professora Doutora Susana Mira Leal, acerca das perspectivas muito negativas, decorrentes para a Instituição a que preside, dos trabalhos em curso sobre financiamento do ensino superior em Portugal. Fomos todos informados que está à vista um novo aperto financeiro, que não só impedirá a nossa Academia de se fortalecer e avançar, como pode mesmo pôr em causa a sua permanência no futuro; e quanto aos mil vezes prometidos reforços, já protocolados em cerimónia presidida pelo então Presidente do Governo Regional, a verdade é que nunca passaram do papel e tardam em ser cumpridos.
+
+A Universidade dos Açores é uma peça chave do processo da Autonomia Constitucional. Ao longo de quase meio século de vida bem activa tem formado boa parte das nossas elites e reúne entre nós e à nossa disposição uma massa muito apreciável de "matéria cinzenta", isto é cérebros habituados a investigar e a produzir ciência sobre as nossas Ilhas. Não podemos de maneira nenhuma prescindir dela, sob pena da Autonomia Açoriana ficar coxa e sem grandes possibilidades de futuro!
+
+O alerta agora lançado tem por isso de ser tomado a sério e levar a uma acção consertada entre todas as forças políticas insulanas no sentido de que seja efectivamente reconhecido, na legislação que pelos vistos se prepara, o carácter específico das universidades instaladas nas regiões insulares ultra-periféricas - e já estou escrevendo no plural porque julgo que o mesmo problema se estará passando relativamente à Universidade da Madeira.
+
+A Universidade dos Açores nasceu como Instituto Universitário ainda antes da aprovação da Constituição de 1976, que garantiu a Autonomia Política aos Arquipélagos Atlânticos de Portugal. Por isso o seu aniversário é festejado em 9 de Janeiro de cada ano, quando o da Constituição só ocorre em Abril, no dia 2 para a aprovação formal pela Assembleia Constituinte e no dia 25 para a entrada em vigor. Foi só em 1980 que o Governo presidido por Francisco Sá Carneiro, a instâncias do Governo da Região Autónoma dos Açores então em funções, a colocou no topo das instituições académicas nacionais, reconhecendo a valia do trabalho em tão pouco tempo realizado pela equipa dinamizadora do arrojado projecto, na qual brilhavam, entre muitos outros, os Professores José Enes e Gustavo de Fraga e o promissor jovem, que viria mais tarde a ser também Magnífico Reitor dela, Vasco Garcia.
+
+No princípio, o orçamento da Universidade esteve incluído no Orçamento da Região, cabendo ao Governo  Regional, através da Secretaria da Educação e Cultura, a tutela da instituição;  mas ao fim de algum tempo, e com o intuito de obter melhor acesso a fundos comunitários afectos ao sistema universitário nacional, gerou-se um movimento no próprio seio da Universidade, no sentido de se proceder à sua transferência integral para a competência do Governo da República. E assim foi feito!
+
+Quando vejo os problemas de agora, não consigo deixar de lembrar os tempos de outrora e a facilidade que tinha o Magnífico Reitor Machado Pires de acesso ao Secretário Regional e ao Presidente do Governo para acertar quaisquer dificuldades financeiras porventura surgidas, aliás sempre, tanto quanto me lembro, em termos satisfatórios. A questão dos fundos europeus  ficava de fora do nosso alcance, porque o Governo da República desse tempo, tinha decidido que tudo o que se fizesse nos Açores deveria sair da fatia dos mesmos inicialmente atribuída à Região, e assim até a Aerogare de Ponta Delgada, construída embora pela ANA, foi buscar recursos aos ditos fundos a nós destinados. Era uma maneira mais de nos apertar, mas havia outras, que não vem agora a propósito referir.
+
+Em todo o caso, o que agora releva é a urgência de ser encontrada uma solução adequada para a situação financeira da nossa Universidade. A Universidade tem vivido anos de aperto financeiro impeditivo de muitas acções necessárias, seja na ampliação e rejuvenescimento dos seus quadros e na competição por atrair os melhores e mais qualificados, seja nas deslocações e na programação de variadas iniciativas, remetidas para um crivo de apoios alheio a ela própria.
+
+Com o anunciado apoio do Governo Regional à tripolaridade, estavam a prever-se tempos de calma e até de recuperação, agora pelos vistos toldados. Qualquer ameaça ao futuro da nossa Universidade deve ser visto como respeitando a todo o processo de afirmação dos Açores, no quadro nacional e europeu.
+
+Nestas circunstâncias, tenho dificuldades em compreender que entidades públicas açorianas encomendem estudos fora dos Açores, sem que primeiramente se consulte a nossa  Universidade e se apure da existência ou não de recursos humanos mobilizáveis para as tarefas requeridas; ou que sejam dadas bolsas para continuação de estudos superiores fora da Região, para cursos leccionados também entre nós, assim rarefazendo o capital humano acessível à Universidade dos Açores para formar o seu corpo discente. Quando se trata de garantir o futuro da nossa Universidade todos os recursos têm de ser mobilizados para tal fim! A Universidade dos Açores tem de continuar a ser sempre, como alguma vez enfatizei, a nossa "Menina dos Olhos"!
+
+João Bosco Mota Amaral

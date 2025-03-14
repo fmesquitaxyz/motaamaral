@@ -1,0 +1,27 @@
+---
+layout: default
+title: Nos dias seguintes à Revolução
+date: 2024-04-30
+---
+# Nos dias seguintes à Revolução
+
+As notas do meu Diário, referentes aos dias subsequentes à Revolução, referem várias vezes idas à sede do jornal Expresso, que naturalmente se tornou o centro das movimentações conducentes à organização da corrente política,  de projecção nacional, gerada e mantida à roda do mesmo. Tratava-se afinal de dar voz e intervenção aos muitos moderados de centro-esquerda, inspirados nos ideais da social-democracia, que Francisco Sá Carneiro tão vibrantemente preconizara desde os tempos da sua participação na tribuna de São Bento.
+
+Assim, logo no dia 26 de Abril, enquanto alguns militantes de grupos partidários proclamados de esquerda, saindo da clandestinidade, se dedicavam, juntamente com outros populares mais radicais, a "caçar Pides", a entrar de rompante pelas instituições do aparelho repressivo do regime ditatorial, nomeadamente a Censura, a Mocidade Portuguesa e a Legião, lançando pela janela documentação que teria talvez sido conveniente arquivar, para prova futura contra os respectivos responsáveis, ou se postavam à porta das prisões políticas de Caxias e de Peniche, reclamando a libertação dos presos nelas detidos, na sede do Expresso trocava eu impressões com Francisco Balsemão e com Marcelo Rebelo de Sousa sobre os caminhos a seguir, tendo em vista as eleições para a Assembleia Constituinte, a realizar dentro de um ano, conforme prometido no Programa do Movimento das Forças Armadas. Falou-se também da formação do Governo Provisório, civil, a compor com pessoas de várias tendencias, incluindo socialistas, comunistas, SEDES e até direita moderada.
+
+No dia seguinte estive em casa de Joaquim Magalhães Mota, onde fui encontrar Jorge Sá Borges, ambos regressados de uma reunião, como representantes da SEDES, com a Junta de Salvação Nacional, ao tempo instalada no Palácio da Cova da Moura, para falarmos dos últimos acontecimentos. Lá soube que Francisco Sá Carneiro chegaria nessa mesma tarde do Porto, também para uma reunião com a mesma Junta.
+
+A 28 regressou do exílio em Paris, viajando de combóio, Mário Soares e a mulher, Maria Barroso. A recepção que lhes estava preparada na Estação de Santa Apolónia foi deveras triunfal. A 29 foi a vez de aterrar em Lisboa, vindo também de um longo  exílio em Moscovo e nos Países de Leste, Álvaro Cunhal, acompanhado de outros dirigentes do Partido Comunista Português, sendo aguardado por uma numerosa multidão, incluindo soldados e marinheiros, fardados; no seu discurso enunciou as tarefas revolucionárias reclamadas pelo PCP, entre as quais se incluía a reforma agrária e a erradicação do fascismo.
+
+Na segunda-feira de manhã estive com Adelino Amaro da Costa a examinar o programa que Diogo Freitas do Amaral e ele tinham elaborado para ser por Veiga Simão enviado ao General Spínola, propondo-se para o cargo de Presidente do Conselho de Ministros. Já não me recordo do conteúdo do dito programa, mas se algum exemplar dele me foi entregue decerto estará no  meu Arquivo Pessoal, depositado no Arquivo da Região Autónoma dos Açores. Certo é que não passou do papel e Veiga Simão não chegou a chefiar o Governo Provisório, sendo antes despachado para a ONU, em Nova Iorque, como Embaixador de Portugal.
+
+Poucos dias depois, escrevi e enviei para o Diário dos Açores um longo artigo a expor a minha posição perante os acontecimentos e a apresentar-me como candidato às anunciadas eleições à Assembleia Constituinte. Tendo sempre defendido publicamente a instauração no nosso País de um regime democrático, com integral respeito das liberdades cívicas e dos direitos fundamentais dos cidadãos, agora que tal objectivo se encontrava cumprido, graças ao MFA e à Revolução do 25 de Abril, entendia ter plena legitimidade para me candidatar a assumir a representação dos Açores no futuro Parlamento. 
+
+Nesse mesmo dia fui entrevistado na Emissora Nacional, a convite de Jaime Gama, que lá desempenhava funções por encargo dos militares, sendo ele próprio então oficial miliciano em cumprimento do Serviço Militar Obrigatório. O convite tinha por objectivo dar lugar a vozes representando as correntes políticas moderadas, evitando que fossem apenas os mais extremistas a serem ouvidos. Falei da minha adesão aos princípios programáticos preconizados pelo MFA e afirmei a minha confiança na Junta de Salvação Nacional, lembrando a sintonia  do respectivo Programa  com o que tinha defendido na extinta Assembleia Nacional. Aludi às movimentações políticas das correntes do centro do espectro político e à extensão delas, em que estava apostado, às Ilhas dos Açores.
+
+Com efeito, à roda do Expresso estávamos trabalhando para fundar um partido de centro-esquerda, dentro das linhas mestras de uma social-democracia europeia. O espaço estava livre, já que o Partido Socialista, professando um ideário marxista, se aproximava do PCP. Francisco Sá Carneiro anunciara a sua intenção de assim proceder, numa entrevista gravada na sua casa no Porto e difundida depois pela Televisão, com grande eco na opinião pública.   
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

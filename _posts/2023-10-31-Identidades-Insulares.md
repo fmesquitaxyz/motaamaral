@@ -1,0 +1,29 @@
+---
+layout: default
+title: "Identidades Insulares: o caso dos Açores"
+date: 2023-10-31
+author: "João Bosco Mota Amaral"
+---
+# Identidades Insulares: o caso dos Açores
+
+Está de parabéns a nossa Universidade, e dentro dela a Faculdade de Ciências Sociais e Humanas, e dentro desta o Curso de Doutoramento em Literaturas e Culturas Insulares, de cuja equipa orientadora se destaca a Professora Dominique Faria, pela organização do Colóquio subordinado ao tema “ Ilhas, Identidades, Alteridades”, que decorreu no Campus Universitário de Ponta Delgada, no final da semana passada, nos dias 26 e 27 de Outubro.
+
+Estiveram presentes e apresentaram comunicações no Colóquio perto de 50 docentes e investigadores, provenientes de diversos países, refletindo sobre as especificidades do património cultural de várias regiões insulares. E o mínimo que se pode dizer é que todos os trabalhos apresentados cumpriram as expectativas, dando a conhecer aos participantes algo de valor sobre as questões abordadas. Vários dos temas relativos aos Açores foram tratados pelos alunos do Curso de Doutoramento mencionado, que assim dão provas da sua capacidade de investigação e exposição, divulgando o património cultural açoriano. O Colóquio foi pois um importante acontecimento, cujo sucesso engrandeceu a Universidade dos Açores e a nossa Região Autónoma também!
+
+Infelizmente, não pude acompanhar, como gostaria, todos os trabalhos do Colóquio, nem tal seria possível pois houve sempre sessões simultâneas para tornar viável a apresentação de todas as comunicações e havia que fazer escolhas. Mas não podia faltar à conferência de encerramento do Colóquio, que esteve a cargo da Professora Ana Cristina Gil e versou, com brilho, o tema: “Um arquipélago em busca de si próprio - o vórtice identitário dos Açores”.
+
+Os Açores são, nas palavras da distinta oradora, uma região que se interroga permanente mente sobre a sua identidade. A palavra “Açorianidade”, criada por Vitorino Nemésio num texto deveras seminal escrito a propósito da comemoração dos quinhentos anos da descoberta das nossas ilhas - que aliás foram sendo “encontradas” ao longo de um período de tempo alargado e povoadas lentamente, umas atrás das outras - foi precedida por várias tentativas de afirmação identitária ao longo do século XIX, culminando na instauração da Autonomia Administrativa dos distritos de Ponta Delgada e de Angra do Heroísmo.
+
+A oradora referiu os termos em que Nemésio justificou a identidade açoriana e aproximou-os dos utilizados por Luís da Silva Ribeiro e, mais recentemente, por António Machado Pires. Todos eles sublinham a identidade açoriana como uma modalidade da identidade nacional portuguesa. Haverá certamente quem não concorde com tal enquadramento, mas isso é coisa que deixa o debate em aberto.
+
+Foi afirmado o papel fundamental da Universidade dos Açores, na sua dimensão tripolar, para a consolidação da identidade açoriana. Tal como o contributo dado pela Comunicação Social, especialmente pela Televisão e pela Rádio, para o mesmo efeito. Para a ilustre Docente Universitária o tema da identidade da nossa Região como um todo tem agora novas abordagens em obras de Onésimo Teotónio de Almeida e diversos autores da geração mais jovem, que se exprime também através dos meios de comunicação mais usuais nos nossos dias.
+
+Pareceu-me que faltou enfatizar o papel da Autonomia Constitucional na afirmação da identidade açoriana e da sua peculiaridade, bem como na sua difusão planetária, envolvendo as comunidades de emigrantes açorianos e seus descendentes e ainda as regiões insulares ultraperiféricas, conceito consagrado no âmbito europeu, mas afinal válido para todas as ilhas remotas, e são muitas, algumas delas quase perdidas nos mares de todo o Mundo.
+
+Conforme tenho dito e escrito muitas vezes, a nossa Autonomia Constitucional partilha uma parte da sua designação com a anterior Autonomia Administrativa, mas na realidade é totalmente diferente. Desde logo trata-se de um projeto de afirmação regional, envolvendo todas as ilhas do nosso Arquipélago e os Açorianos da nossa diáspora, ultrapassando assim em absoluto a dimensão distrital que caracterizou as ditas “Campanhas Autonomistas” do final do século XIX e da segunda década do século XX. Recorde-se que as ilhas do distrito da Horta sempre ficaram de fora de tais movimentações e só passaram a ter Autonomia Administrativa com o” Estatuto dos Distritos Autónomos” imposto pelo Governo do Estado Novo, em 1940.
+
+Com a Revolução do 25 de Abril e conforme o seu ideário inicial de Liberdade e Emancipação, reivindicámos uma Autonomia com conteúdo político, de legislação e de governo, verdadeiramente açoriana, em toda a sua dimensão. Apesar dos obstáculos iniciais, contidos na Constituição de 1976, a verdade é que nos fomos libertando de tais peias nas sucessivas revisões constitucionais, às quais sempre se seguiram atualizações do Estatuto Político-Administrativo da Região Autónoma dos Açores. E por isso é possível dizer que a nossa Autonomia é deveras Progressiva, como logo de início, com farisaico escândalo de alguns, expressamente a qualifiquei.
+
+O facto de os Açores passarem a ter Parlamento e Governo próprios, resultantes de eleições livres e justas, regularmente celebradas todos os quatro anos, vencendo a prova do tempo e até demonstrando as virtualidades da alternância democrática, está no centro da afirmação da identidade açoriana nos nossos dias. Julgo que a construção da Unidade Açoriana foi de longe a maior conquista do Povo Açoriano nestes quase 50 anos da Autonomia Constitucional. Por isso a alastramento do divisionismo, que alguns tolamente praticam, sem perceberem talvez o mal que estão fazendo, é a maior ameaça que presentemente enfrenta a Autonomia Constitucional; e se não for debelado, pode vir a por em causa o futuro dos Açores, transformando em ridículos ganhos temporários as feridas causadas à unidade do nosso Povo.
+
+João Bosco Mota Amaral

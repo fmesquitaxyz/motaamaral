@@ -1,0 +1,23 @@
+---
+layout: default
+title: O escândalo da Cruz
+date: 2023-04-04
+---
+# O escândalo da Cruz
+
+Todos os anos somos confrontados com a celebração da Paixão, Morte e Ressurreição de Nosso Senhor Jesus Cristo, ao longo da Semana Santa, em que já estamos, e em especial no período agora chamado do Tríduo Pascal. Para muitos isso agora passa ao lado, pois as sociedades secularizadas converteram num tempo de férias e de viagens, mais ou menos eruditas, de simples descanso ou até de divertimento inconsequente, como acontece na generalidade das chamadas viagens de fim de curso, o tempo que os crentes destinam a uma paragem para reflexão e melhoria de vida.
+
+A Páscoa é uma festa de vida e não de morte! O que nela realça é o triunfo de Cristo sobre a morte, infligida no termo de um processo atrabiliário, desdobrado em várias fases e perante diferentes julgadores. Ocorre-me agora uma peça de teatro vista no Dona Maria, há muitíssimos anos, com o título "O processo de Jesus". No palco, um júri esmiuçava os incidentes nele ocorridos e havia personagens espalhados na plateia e nos camarotes que de lá mesmo intervinham, fazendo passar pelo meio de todo o público a corrente dramática das palavras por eles proferidas. Ainda hoje recordo a impressão comovedora deixada pela declaração do cego de nascença curado por Jesus, em Jerusalém, já quando a contestação ia enrijando e se conspirava a sua prisão e posterior desaparecimento do número dos vivos. Ficava claro que o processo afinal tinha tido um objectivo religioso, mascarado embora de conteúdo político, tendo em vista a aplicação de uma pena de morte infamante, destinada a desacreditar a nova doutrina e a desmotivar os seus seguidores.
+
+Mas não é avisado atravessar muito depressa a espessura do Mistério Pascal, pondo para detrás das costas os padecimentos de Cristo e a sua morte ignominiosa na cruz, erguida sobre o Calvário em testemunho do grande amor de Deus pelo Homem e da gravidade do pecado deste ao opor-se ao desígnios divinos a seu respeito, que são afinal de salvação e de felicidade, já agora e para sempre. É que o sofrimento faz parte da condição humana e pretender ignorar isso é mera ilusão, de consequências péssimas.
+
+No nosso tempo ocorre uma espécie de fuga generalizada perante tudo aquilo que exige superação e luta, como se uma vida totalmente devotada ao bem estar e a toda a casta de satisfações fosse sequer possível e tivesse real valor. Na falta de referências de índole superior, estamos assistindo, horrorizados, ao afundamento de tanta juventude na droga, na violência, no crime, abarrotando os tribunais e as cadeias e arrastando as respectivas  famílias para a pobreza e o desespero. Chamaram-me  a atenção há dias para o que está sucedendo em países tidos por avançados e até exemplares, como a Finlândia e a Suécia, com o crescimento da mortalidade entre os jovens com menos de 20 anos, em resultado de suicídios e de overdoses.
+
+A crise da Família dita tradicional é responsável por alguma parte desse ambiente de desilusão e de vazio. Mas na génese do generalizado mal estar encontra-se, sem dúvida, a perda de referências e o afastamento da própria noção do sobrenatural e do divino. A vida sem Deus torna-se absurda e carente de sentido, ficando apenas para a preencher a busca desenfreada de prazer, a qualquer preço e sem ter em conta as previsíveis consequências. As chamadas "questões fracturantes", abordadas em Portugal num sentido de máximo facilitismo, dão respostas ao novo paradigma, por tantos praticado já, e ajudam a torná-lo o mais generalizado possível. Se por tal caminho vamos bem, como sociedade, não é o que múltiplos indicadores permitem concluir; mas a pressão mediática e das redes sociais a todos nos empurram pela estrada fácil que conduz ao abismo.
+
+A Cruz de Cristo não pode, porém, ficar em vão! A Redenção traz aos crentes forças novas, que nos compete aproveitar em plenitude. A proclamação de Vida, dela derivada, é também uma proclamação de Liberdade e até de revolta contra o aviltamento da alta dignidade da pessoa humana. Jesus morreu no meio de atrozes sofrimentos para fazer de cada um, não já apenas simples criatura, mas sim filho de Deus. Estamos "endeusados", em  nós habita o Espírito Santo, que nos inspira e nos conduz, desde que saibamos ouvir a sua voz no mais íntimo de cada um -  porque Ele fala suficientemente alto para que quem  o quiser ouvir o ouça, e suficientemente baixo para que quem não o quiser ouvir não o ouça. 
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

@@ -1,0 +1,27 @@
+---
+layout: default
+title: Alguns comentários positivos sobre as Festas
+date: 2023-05-16
+---
+# Alguns comentários positivos sobre as Festas
+
+Das Festas ainda em curso, neste ano, só pode dizer-se que estão sendo um grande sucesso! Estão de parabéns os seus imediatos responsáveis, a Mesa da Irmandade, que se intitula de Comissão das Festas, o Reitor do Santuário e a sua equipa e afinal todos nós, micaelenses e açorianos, que somos o primeiro obreiro das homenagens a Nosso Senhor Jesus Cristo, maravilhosamente representado na Veneranda Imagem do Senhor Santo Cristo dos Milagres.
+
+O tempo tem ajudado e os dias de Sol fazem-nos esquecer o prolongado Inverno que as nossas ilhas estão padecendo, ainda assim com a vantagem de não alastrarem até nós os dramáticos efeitos da seca, que tanto afecta a parte sul do nosso País, por sinal em latitudes quase iguais às nossas. Já estávamos começando a habituar-nos a fazer parte do percurso da grande procissão de Domingo debaixo de chuva - e talvez por isso criei o hábito de levar comigo o guarda-chuva, mas desta vez não houve necessidade de o abrir e ficou simplesmente servindo de bengala, mais ou menos disfarçada... Foi, porém, o Sol que nos sorriu durante todo o trajecto, fazendo brilhar intensamente os ouros do andor e as jóias que ornamentam a Imagem, mas às quais ninguém presta a menor atenção, tão fixos se prendem os nossos olhos nos olhos magoados com que o Senhor Santo Cristo parece nos estar vendo, a cada um individualmente.
+
+Não me lembro de ter havido tanta gente nas ruas a ver passar a procissão. Muitos eram de cá, trazidos pelo bom tempo e entusiasmados  com o fim, já declarado oficialmente, da terrível pandemia. Mas havia também os que vieram das nossas  Comunidades de Emigrantes, da América e do Canadá, de outras Ilhas do nosso Arquipélago, ou até de outros pontos de Portugal. E ainda muitos estrangeiros, passantes do navio de cruzeiros atracado nas Portas do Mar e turistas chegados por avião, de variadas procedências, falando as suas próprias línguas, numa espécie de Babel ou, desejavelmente, de Pentecostes, decerto surpreendidos pela extensão e natureza de um cortejo religioso, pontuado pela música proporcionada por mais de uma vintena de bandas filarmónicas. Sobre estas é forçoso assinalar a variedade e alta qualidade da execução dos temas escolhidos pelos respectivos mestres, apoiados pelos dirigentes delas, que também seguiam orgulhosamente na frente e logo a seguir às porta-estandartes, entre os quais se destacava a Bandeira dos Açores.
+
+Pude ver na procissão, de opa vermelha na fila própria, muitos dos que antes seguiam o andor como convidados da Mesa da Irmandade, testemunhando assim a convicção com que sempre se incorporam no cortejo. Notei algumas faltas, mas também é certo que, tendo saído da procissão junto ao Jardim da Zenite, não consegui ficar até ao fim por causa do Sol e do cansaço. Talvez houvesse mais gente conhecida noutras localizações... Mas também sempre pensei que não existe qualquer obrigação de comparecer nessa altura, a quem não partilha convicções religiosas católicas.
+
+Considero muito boa ideia ter sido o andor levado logo para o Igreja de São José, após o termo da Mudança, no Sábado ao fim da tarde. Sempre me pareceu um excesso fazer uma espécie de segunda Mudança à meia noite e só compareci da primeira vez em que tal ocorreu, no ano 2000, se bem me lembro, entrando por São José dentro sem pôr os pés no chão, no meio de um aperto multitudinário. Assim, num espaço muito mais amplo, a oração dos fiéis pode decorrer em melhor ordem e a vigília também.
+
+O nosso novo Bispo deve ter ficado agradavelmente surpreendido com a participação de tanta gente nas celebrações destas Festas  e com a unção da esmagadora maioria. A devoção  ao Senhor Santo Cristo dos Milagres é um elemento muito relevante da religiosidade popular em São Miguel e de modo mais geral nos Açores. As homilias proferidas por Dom Armando merecem ser publicadas em livro, e a Mesa da Irmandade deve encarregar-se disso, tal como fez, e muito bem, com os belos textos do Cardeal Tolentino, quando cá veio no ano passado. Tive já oportunidade de alertar Dom Armando para a razoabilidade de se restaurar a liturgia aprovada em tempos pelo Bispo Dom Aurélio, própria da Festa do Ecce Homo, com paramentos vermelhos e tudo; de outro modo, ficamos no embaraço de ouvir leituras que nada dizem sobre a Paixão de Nosso Senhor, que é precisamente o que nos atrai e surpreende na Veneranda Imagem, e boa parte das considerações depois feitas têm por tema o que está perante os nosso olhos e não os que porventura nos tenha ficado nos ouvidos.
+
+Os arraiais estiveram muito bem com música de qualidade e a dose de divertimento própria de uma grande festa. Não faltaram também os foguetes e o fogo de artifício, que foi um momento alto da noite do Sábado do Senhor. Trata-se de tradições fortes, que não se devem perder, por qualquer pretensão inovatória, mais ou menos puritana. O povo reza e chora, mas também precisa de rir e de espairecer; e sempre se encontrou lugar e ambiente para tudo, com o equilíbrio necessário.
+
+Oxalá, para o ano estejamos todos cá e de boa saúde, para condignamente, como aconteceu este ano, o Senhor Santo Cristo dos Milagres.
+
+
+João Bosco Mota Amaral
+
+(Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)

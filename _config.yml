@@ -1,0 +1,11 @@
+theme: minima
+
+minima: 
+  skin: solarized
+  
+plugins:
+  - jekyll-feed
+author:
+  name : "João Bosco Mota Amaral"
+title: "Opinião de João Bosco Mota Amaral"
+description: "Opinião de João Bosco Mota Amaral"
