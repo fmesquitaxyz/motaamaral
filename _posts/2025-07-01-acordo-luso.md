@@ -3,7 +3,8 @@ layout: default
 title: "Acerca do Acordo Luso-Americano sobre facilidades militares nos Açores"
 date: 2025-07-01
 ---
- 
+# Acerca do Acordo Luso-Americano sobre facilidades militares nos Açores
+
 Falou-se muito ultimamente sobre o tema em título. A versão mais recente de tal Acordo é de 1995 e foi negociada quando ainda tinha responsabilidades governativas na nossa Região Autónoma. Recordo bem um telefonema do então Ministro dos Negócios Estrangeiros, José Manuel Durão Barroso, destinado a acertar pormenores no texto final.
 
 Estava então já fora de causa incluir no Acordo, como tinha acontecido em 1979 e depois em 1983, qualquer previsão de ajudas directas norte-americanas destinadas a financiar investimentos em infraestruturas nos Açores. Tínhamos entrado há já alguns anos no clube restricto dos países ricos europeus, corporizado então nas Comunidades Europeias, das quais aliás começámos logo a receber significativas ajudas, que se prolongam até hoje.

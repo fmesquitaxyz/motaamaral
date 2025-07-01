@@ -3,7 +3,8 @@ layout: default
 title: "Sobre a crise europeia"
 date: 2025-05-13
 ---
-                                                       
+# Sobre a crise europeia
+
 Recuemos oitenta anos para trás e estaremos no final da IIª Guerra Mundial, festejado nestes últimos dias como a vitória das Forças Aliadas sobre a Alemanha, dominada pelo perverso nazismo, personificado em Adolf Hitler e seus sequazes. A Europa está em boa parte destruída pelos intensos bombardeamentos de parte a parte; e em todo o Mundo o conflito custou a vida a cerca de 60 milhões de pessoas.
 
 É preciso começar de novo, aprendendo a viver em paz! As diversas tentativas então feitas vêm a culminar no Tratado de Washington, em 1949, que criou a Organização do Tratado do Atlântico Norte; e no Tratado de Roma, que deu origem, em 1957, à Comunidade Económica Europeia. A aliança militar dos países democráticos, na qual Portugal entra por causa dos Açores e da sua enorme valia geoestratégica, vem a ser o pilar sobre o qual assenta a defesa do Velho Continente; por seu turno a CEE, constituída de início apenas por seis países, vem a alargar-se, em especial após o fim da Guerra Fria, com a queda do Muro de Berlim, em 1989, e transforma-se na União Europeia, incluindo nas suas finalidades objectivos económicos e também políticos.
