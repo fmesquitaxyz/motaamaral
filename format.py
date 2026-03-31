@@ -5,7 +5,7 @@ from datetime import datetime
 
 
 def generate_front_matter(title, date):
-    return f"---\nlayout: default\ntitle: {title}\ndate: {date}\n---\n"
+    return f"---\nlayout: post\ntitle: {title}\ndate: {date}\n---\n"
 
 
 def double_newlines(input_file, output_file):
