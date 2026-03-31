@@ -3,7 +3,6 @@ layout: default
 title: "Os derradeiros “abencerragens” do Centralismo"
 date: 2025-07-08
 ---
-# Os derradeiros “abencerragens” do Centralismo
 
 O Tribunal Constitucional acaba de pronunciar-se sobre diplomas regionais, declarando, com força obrigatória geral, a inconstitucionalidade de algumas das suas normas, relacionadas com os poderes sobre questões marítimas, que se pretende caberem aos Órgãos de Governo Próprio da Região Autónoma dos Açores, mas os juízes não concordam e querem atribuí-los ao Poder Central.
 
@@ -30,3 +29,4 @@ Resta-nos denunciá-las e combatê-las sempre e sem nunca desistirmos da nossa a
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

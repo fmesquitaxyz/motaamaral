@@ -3,7 +3,6 @@ layout: default
 title: "Tema urgente : revisão da Lei de Finanças Regionais "
 date: 2025-07-22
 ---
-# Tema urgente : revisão da Lei de Finanças Regionais
 
 Já se ouve falar do tema há muito tempo e a verdade é que parece se marca passo, isto é, agitamo-nos mas não saímos do mesmo lugar! Ora, este assunto é urgentíssimo e não se compadece com mais demoras, porque por falta de dinheiro público, admitida pelos mais altos responsáveis regionais, se está instalando entre nós um clima de ninguém pagar a ninguém, prejudicando grandemente a confiança, sobre a qual assenta qualquer vivência colectiva.
 

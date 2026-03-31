@@ -3,7 +3,6 @@ layout: default
 title: O escândalo da Cruz
 date: 2023-04-04
 ---
-# O escândalo da Cruz
 
 Todos os anos somos confrontados com a celebração da Paixão, Morte e Ressurreição de Nosso Senhor Jesus Cristo, ao longo da Semana Santa, em que já estamos, e em especial no período agora chamado do Tríduo Pascal. Para muitos isso agora passa ao lado, pois as sociedades secularizadas converteram num tempo de férias e de viagens, mais ou menos eruditas, de simples descanso ou até de divertimento inconsequente, como acontece na generalidade das chamadas viagens de fim de curso, o tempo que os crentes destinam a uma paragem para reflexão e melhoria de vida.
 

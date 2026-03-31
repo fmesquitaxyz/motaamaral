@@ -3,7 +3,6 @@ layout: default
 title: O PSD/Açores faz hoje 50 anos
 date: 2024-05-14
 ---
-# O PSD/Açores faz hoje 50 anos
 
 No dia em que este texto sai nos jornais de Ponta Delgada, completam-se 50 anos exactos sobre a fundação do PSD/Açores. Foi no termo de uma reunião com cerca de 200 pessoas, de várias  idades e proveniências políticas, realizada no Centro Paroquial da Fajã de Baixo, que tal deliberação foi tomada: criar, no ambiente novo de Liberdade e de Democracia, resultante da Revolução do 25 de Abril, um partido regionalista, virado prioritariamente para as questões açorianas, orientado pelas grandes marcas ideológicas da social-democracia e aderindo ao Partido Popular Democrático, cuja fundação fora dias antes anunciada em Lisboa por Francisco  Sá Carneiro, Francisco Balsemão e Joaquim Magalhães Mota.
 

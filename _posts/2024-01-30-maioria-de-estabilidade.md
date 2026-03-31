@@ -3,7 +3,6 @@ layout: default
 title: Maioria de estabilidade
 date: 2024-01-30
 ---
-# Maioria de estabilidade
 
 O pedido formulado por José Manuel Bolieiro ao eleitorado, nas eleições regionais de Domingo próximo, é "uma maioria de estabilidade". Parece-me sensato e corresponde à percepção das responsabilidades que impendem sobre o líder de uma coligação de governo, com a experiência de um mandato difícil, marcado por permanentes negociações e cedências dentro e fora da coligação, com os vários parceiros dos acordos de incidência parlamentar e interrompido bruscamente por atitudes inconsideradas de alguns dos mesmos, precisamente quando se avizinhavam os melhores tempos da governação, conforme previsto no Orçamento em má hora rejeitado pela Assembleia Legislativa Regional.
 

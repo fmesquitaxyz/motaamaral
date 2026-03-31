@@ -4,7 +4,6 @@ title: "Mercenários estão de volta!"
 date: 2023-08-29
 author: "João Bosco Mota Amaral"
 ---
-# Mercenários estão de volta!
 
 Estava lendo, num dia da semana passada, os jornais de Lisboa e cheguei ao local em que se relatava o caso do avião misteriosamente caído num voo de Moscovo para São Petersburgo. Quando percebi quem eram os passageiros, virei a página, invocando o velho princípio de não gastar cera com tão ruim defunto!
 
@@ -25,3 +24,4 @@ No entanto, a existência de tropas mercenárias era comum em tempos idos. E nos
 Corre agora que o ditador russo se prepara para exigir um juramento de fidelidade aos sobreviventes do Grupo Wagner, para que se mantenham ao serviço dos objectivos militares por ele e sua "entourage" definidos, de imediato para voltarem à Ucrânia e às criminosas destruições que por lá se praticam. Lembra isso tragicamente o juramento de fidelidade ao "Fuhrer" exigido por Hitler às tropas alemãs já na fase final da II Guerra Mundial, tudo terminando num banho de sangue e num mar de destroços. 
 
 João Bosco Mota Amaral
+

@@ -3,7 +3,6 @@ layout: default
 title: Um concerto memorável
 date: 2024-01-09
 ---
-# Um concerto memorável
 
 Graças à gravação feita pelos serviços competentes, pude assistir, em diferido, ao Concerto de Ano Novo da Orquestra Filarmónica de Viena, dirigida pelo Maestro Christian Thielemann. É um verdadeiro acontecimento artístico e social, de ressonância europeia e até se pode dizer mundial, já que são muito numerosas as estações de televisão que se ligam à TV austríaca para o retransmitir em directo, sempre a partir da Sala de Concertos dourada do Musik Verein.
 

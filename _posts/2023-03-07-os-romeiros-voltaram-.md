@@ -3,7 +3,6 @@ layout: default
 title: Os Romeiros voltaram!
 date: 2023-03-07
 ---
-# Os Romeiros voltaram!
 
 Eles aí estão de novo, calcorreando as estradas e os caminhos mais antigos da nossa Ilha de São Miguel, mantendo viva uma tradição que conta já mais de 500 anos! E que saudades tínhamos todos de ver esses grupos de homens penitentes, de xaile pelas costas e lenço na cabeça, quando a chuva ou o frio apertam, passando as contas do terço enquanto vão cantando a Avé Maria, no tom arrastado e comovente, como só eles sabem fazer!
 

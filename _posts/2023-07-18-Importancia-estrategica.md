@@ -10,7 +10,6 @@ author: "João Bosco Mota Amaral"
 
 ---
 
-# Sobre a importância estratégica dos Açores
 
 Lendo o interessante livro do Embaixador Bernardo Futscher Pereira, “A Diplomacia de Salazar”, fui encontrar várias referências à importância estratégica dos Açores, que afinal foi amplamente dominante na política externa portuguesa ao longo da era salazariana. O livro aborda apenas o tempo em que o ditador consolidou o seu poder sobre o Estado, assumindo as pastas dos Negócios Estrangeiros e da Guerra, como então se dizia, a pretexto da crise política em Espanha, que viria a degenerar na Guerra Civil, entre 1936 e 1939, e, logo a seguir, da II Guerra Mundial, esta arrastando-se desde 1939 até 1945. Contém ainda elementos de interesse sobre a fase do pós guerra, nomeadamente o surgir da Aliança Atlântica, que marca o iniludível papel liderante da nova potência dominante, os Estados Unidos da América, para horror de Salazar, que tinha os americanos em baixa consideração.
 

@@ -3,7 +3,6 @@ layout: default
 title: Regresso ao passado
 date: 2024-04-16
 ---
-# Regresso ao passado
 
 Retomo o contacto com os leitores das minhas crónicas, após as férias que me atribuí no período da Páscoa. Estou escrevendo na segunda-feira 15 de manhã e tenho o telemóvel desligado, porque hoje faço 81 anos e as mensagens e as chamadas previsíveis não me deixariam trabalhar em sossego. Hei-de atendê-las e responder mais tarde!
 

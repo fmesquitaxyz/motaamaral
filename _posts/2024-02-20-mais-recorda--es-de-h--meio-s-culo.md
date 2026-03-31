@@ -3,7 +3,6 @@ layout: default
 title: Mais recordações de há meio século
 date: 2024-02-20
 ---
-# Mais recordações de há meio século
 
 Fará por estes dias 50 anos que o livro de António de Spínola "Portugal e o Futuro" apareceu nos escaparates das livrarias e logo se tornou num verdadeiro sucesso editorial, com cinco edições esgotadas avidamente por um público de leitores bastante vasto. Por sinal, encontrei um exemplar da terceira edição, assinado pelo primeiro proprietário, com data e tudo,  à venda por um preço simbólico na nossa Biblioteca Pública e não hesitei em adquiri-lo, para reler as passagens principais. Naturalmente, tenho o livro, mas não sei onde se encontra e a oportunidade para o rever é agora ou nunca mais...
 

@@ -3,7 +3,6 @@ layout: default
 title: Leituras de Verão
 date: 2024-08-13
 ---
-# Leituras de Verão
 
 Tenho aproveitado o período de Verão para pôr em dia as leituras que não pude ir fazendo ao longo do ano, mesmo tendo comprado os livros novos, sempre cobiçados nas estantes das livrarias da cidade.
 

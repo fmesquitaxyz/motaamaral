@@ -3,7 +3,6 @@ layout: default
 title: Comemorações várias e sucessivas, concentradas no tempo
 date: 2024-10-22
 ---
-# Comemorações várias e sucessivas, concentradas no tempo
 
 Vão continuar nos tempos mais próximos as comemorações da Revolução do 25 de Abril. Acontecimento de tanta relevância histórica bem merece ser celebrado, até para aviso dos mais distraídos, que podem pensar que a Liberdade e a Democracia são bens garantidos a todos e para sempre - o que, infelizmente, não é verdade e o que se está passando pelo Mundo configura um claro retrocesso, em favor dos autoritarismos de diverso sinal. 
 

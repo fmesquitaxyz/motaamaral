@@ -3,7 +3,6 @@ layout: default
 title: Nos dias seguintes à Revolução
 date: 2024-04-30
 ---
-# Nos dias seguintes à Revolução
 
 As notas do meu Diário, referentes aos dias subsequentes à Revolução, referem várias vezes idas à sede do jornal Expresso, que naturalmente se tornou o centro das movimentações conducentes à organização da corrente política,  de projecção nacional, gerada e mantida à roda do mesmo. Tratava-se afinal de dar voz e intervenção aos muitos moderados de centro-esquerda, inspirados nos ideais da social-democracia, que Francisco Sá Carneiro tão vibrantemente preconizara desde os tempos da sua participação na tribuna de São Bento.
 

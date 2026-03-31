@@ -3,7 +3,6 @@ layout: default
 title: Depois da vitória
 date: 2025-04-29
 ---
-# Depois da vitória
 
 O PSD/Açores, então com a sigla PPD, teve uma grande vitória nas primeiras eleições realmente livres e democráticas realizadas no nosso País, em 25 de Abril de 1975, há meio século portanto. Num total de seis Deputados à Assembleia Constituinte, atribuídos pela Lei Eleitoral aos três distritos autónomos açorianos, cada um deles sendo um círculo eleitoral, elegemos cinco Deputados, o Partido Socialista elegeu um Deputado e os outros partidos concorrentes, que eram vários e todos com altas expectativas de representarem os interesses do Povo, nenhum!
 
@@ -24,3 +23,4 @@ A nossa manifestação terminou com um comício ao ar livre, em frente à sede d
 Se essa manifestação foi ou não fundamental para preparar a grande movimentação popular do 6 de Junho, também em vésperas de contar meio século, é assunto que será sempre discutido. Para mim tenho uma recordação indelével dessa primeira saída para a rua do PSD/Açores, às quais muitas outras se seguiriam, sobretudo no período fundacional da nossa nova Autonomia Constitucional, arrancada a ferros aos que a ela se opunham, tanto em Lisboa como por cá.
 
 *Por convicção pessoal, o Autor escreve segundo o antigo Acordo Ortográfico.
+

@@ -3,7 +3,6 @@ layout: default
 title: Sobre o 25 de Novembro
 date: 2024-12-03
 ---
-# Sobre o 25 de Novembro
 
 Andou por aí grossa controvérsia sobre as celebrações do 25 de Novembro, este ano pela primeira vez assumidas pela Assembleia da República, por proposta do CDS, apoiada pelo PSD e pelo partido Chega! A este respeito cruzaram-se várias narrativas acerca da Revolução do 25 de Abril e a evolução posterior, cada uma delas pretendendo justificar as ditas celebrações ou o seu contrário. Sinto-me por isso autorizado a dar a minha própria versão dos acontecimentos, embora incompleta, naturalmente. 
 

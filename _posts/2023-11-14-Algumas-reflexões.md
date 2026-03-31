@@ -4,7 +4,6 @@ title: "Algumas reflexões sobre as crises políticas em curso"
 date: 2023-11-14
 author: "João Bosco Mota Amaral"
 ---
-# Algumas reflexões sobre as crises políticas em curso
 
 A primeira ideia que me ocorreu quando começou a esfrangalhar-se a posição dominante do PS no plano nacional, com a queda do Governo e a dissolução do Parlamento pelo Presidente da República, foi a transitoriedade do poder político nas sociedades democráticas. Quando tudo parecia correr bem ao partido maioritário, com posição dominante na Assembleia da República e um Executivo inabalável a “casos e casinhos”, alguns com foros de verdadeiros escândalos, eis que surge uma crise, arrastando em voragem todos os sonhos de perenidade, habilmente concebidos para condicionar as forças políticas da Oposição.
 

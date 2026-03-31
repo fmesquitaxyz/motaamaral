@@ -3,7 +3,6 @@ layout: default
 title: Gronelândia para os Gronelandeses
 date: 2025-02-11
 ---
-# Gronelândia para os Gronelandeses
 
 Surpreendeu-me bastante - alguns ignorantes diriam que fiquei surpreso... - com o à vontade com que certos líderes europeus logo se declararam prontos para se colocarem ao lado do Governo da Dinamarca e até para enviar soldados para a Gronelândia para a defenderem de qualquer invasão americana, no seguimento das tresloucadas afirmações do Presidente dos Estados Unidos.
 

@@ -3,7 +3,6 @@ layout: default
 title: Voltando às questões financeiras regionais
 date: 2024-09-24
 ---
-# Voltando às questões financeiras regionais
 
 Vai por aí uma grande gritaria sobre atrasos nos pagamentos e até parece que os recursos disponíveis não chegam para fazer face às obrigações em devido tempo assumidas... O jogo de passa-culpas vai de vento em popa, todos se virando afinal para uma futura e necessária revisão da Lei de Finanças Regionais. 
 

@@ -4,7 +4,6 @@ title: "Modas Imperiais"
 date: 2023-09-12
 author: "João Bosco Mota Amaral"
 ---
-# Modas Imperiais
 
 Cada vez me convenço mais que se pode aprender muito lendo jornais. Ainda na semana passada, trazia o Diário de Notícias, na secção correspondente, a transcrição de uma extensa reportagem, saída na edição de há um século, precisamente, sobre os festejos realizados em Lisboa, comemorativos da vitória militar portuguesa nos territórios do sul de Angola, contra o levantamento de uma tribo, impulsionado pelos nossos então vizinhos alemães do Sudoeste Africano, no decurso da Grande Guerra. A narração tinha requintes de pormenor, sobre o enquadramento humano da cerimónia, realizada na Avenida da República, e referido como muito numeroso. Presentes na Tribuna de Honra, situada na Praça de Saldanha, o próprio Presidente do Ministério, como então se chamava o Chefe do Governo, e vários ministros e outras figuras públicas notáveis, algumas com nomes ainda inscritos na toponímia da capital, outras até já o tiveram em cidades angolanas, antes da independência.
 
@@ -17,3 +16,4 @@ O fim dos impérios coloniais fica marcado pelos compromissos assumidos no final
 Em Portugal, a guerra desenrolou-se em três frentes e envolveu centenas de milhares de combatentes, brancos e negros, todos convencidos de terem alguma razão; mas nem todos a tinham certa, e depois do colapso do regime autoritário e da implantação da Democracia, novas relações se estabeleceram entre Portugal e as suas antigas colónias, com bases de entendimento sólidas e prometendo frutos para os interessados.
 
 João Bosco Mota Amaral
+

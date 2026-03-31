@@ -3,7 +3,6 @@ layout: default
 title: Exemplo para todos os Açores
 date: 2024-11-12
 ---
-# Exemplo para todos os Açores
 
 A celebração dos 490 anos da Diocese de Angra e Ilhas dos Açores, ocorrida no passado dia 3, trouxe-me à memória a inauguração da Sé Catedral reconstruída, ocorrida no próprio dia em que se festejava o 450º aniversário da Bula Papal que a erigiu, desanexando-a da do Funchal.  
 

@@ -3,7 +3,6 @@ layout: default
 title: Alguns comentários positivos sobre as Festas
 date: 2023-05-16
 ---
-# Alguns comentários positivos sobre as Festas
 
 Das Festas ainda em curso, neste ano, só pode dizer-se que estão sendo um grande sucesso! Estão de parabéns os seus imediatos responsáveis, a Mesa da Irmandade, que se intitula de Comissão das Festas, o Reitor do Santuário e a sua equipa e afinal todos nós, micaelenses e açorianos, que somos o primeiro obreiro das homenagens a Nosso Senhor Jesus Cristo, maravilhosamente representado na Veneranda Imagem do Senhor Santo Cristo dos Milagres.
 

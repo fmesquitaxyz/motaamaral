@@ -3,7 +3,6 @@ layout: default
 title: A grande música na Páscoa em Ponta Delgada
 date: 2023-04-11
 ---
-# A grande música na Páscoa em Ponta Delgada
 
 A estadia na nossa Ilha de São Miguel, aproveitando as férias escolares para um período de ensaios mais intenso, da Jovem Orquestra Portuguesa, composta maioritariamente por raparigas, permitiu um interessante convívio com os estudantes de Música do Conservatório e ainda proporcionou a um público mais vasto a  oportunidade de dois concertos, com programação escolhida e de qualidade. Fui gentilmente convidado para ambos, mas só consegui ir ao segundo, no Coliseu, na tarde do Domingo de Páscoa e não fiquei desiludido, antes pelo contrário.
 

@@ -4,7 +4,6 @@ title: "Alarme na Universidade dos Açores"
 date: 2023-08-01
 author: "João Bosco Mota Amaral"
 ---
-# Alarme na Universidade dos Açores
 
 Não pode ficar sem eco - e muito forte! - o alerta lançado na semana passada pela Magnífica Reitora da Universidade dos Açores Professora Doutora Susana Mira Leal, acerca das perspectivas muito negativas, decorrentes para a Instituição a que preside, dos trabalhos em curso sobre financiamento do ensino superior em Portugal. Fomos todos informados que está à vista um novo aperto financeiro, que não só impedirá a nossa Academia de se fortalecer e avançar, como pode mesmo pôr em causa a sua permanência no futuro; e quanto aos mil vezes prometidos reforços, já protocolados em cerimónia presidida pelo então Presidente do Governo Regional, a verdade é que nunca passaram do papel e tardam em ser cumpridos.
 
@@ -25,3 +24,4 @@ Com o anunciado apoio do Governo Regional à tripolaridade, estavam a prever-se 
 Nestas circunstâncias, tenho dificuldades em compreender que entidades públicas açorianas encomendem estudos fora dos Açores, sem que primeiramente se consulte a nossa  Universidade e se apure da existência ou não de recursos humanos mobilizáveis para as tarefas requeridas; ou que sejam dadas bolsas para continuação de estudos superiores fora da Região, para cursos leccionados também entre nós, assim rarefazendo o capital humano acessível à Universidade dos Açores para formar o seu corpo discente. Quando se trata de garantir o futuro da nossa Universidade todos os recursos têm de ser mobilizados para tal fim! A Universidade dos Açores tem de continuar a ser sempre, como alguma vez enfatizei, a nossa "Menina dos Olhos"!
 
 João Bosco Mota Amaral
+

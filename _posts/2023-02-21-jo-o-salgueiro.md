@@ -3,7 +3,6 @@ layout: default
 title: João Salgueiro
 date: 2023-02-21
 ---
-# João Salgueiro
 
 Faleceu, no final da semana passada, um dos economistas mais distintos da sua geração, formado ainda no tempo em que essa Ciência dava entre nós os seus primeiros passos. João Salgueiro era oriundo do Norte de Portugal, mas foi em Lisboa que viveu a sua intensa e longa vida, sempre entusiasmado com os problemas do País, para os quais se empenhou, mediante uma destacada participação cívica, em encontrar solução, tendo sempre em vista a melhoria das condições do Povo Português.
 

@@ -3,7 +3,6 @@ layout: default
 title: A Revolução do 25 de Abril a caminho de festejar meio século
 date: 2024-04-25
 ---
-# A Revolução do 25 de Abril a caminho de festejar meio século
 
 Para quem viveu esses dias inesquecíveis, parece que foram ainda ontem… Mas a maioria da população do nosso País nasceu já depois disso tudo e para ela portanto os factos históricos agora assinalados apresentam-se esfumados no tempo, como algo longínquo, por vezes até e em certos pormenores dificilmente compreensíveis.
 

@@ -4,7 +4,6 @@ title: "Identidades Insulares: o caso dos Açores"
 date: 2023-10-31
 author: "João Bosco Mota Amaral"
 ---
-# Identidades Insulares: o caso dos Açores
 
 Está de parabéns a nossa Universidade, e dentro dela a Faculdade de Ciências Sociais e Humanas, e dentro desta o Curso de Doutoramento em Literaturas e Culturas Insulares, de cuja equipa orientadora se destaca a Professora Dominique Faria, pela organização do Colóquio subordinado ao tema “ Ilhas, Identidades, Alteridades”, que decorreu no Campus Universitário de Ponta Delgada, no final da semana passada, nos dias 26 e 27 de Outubro.
 

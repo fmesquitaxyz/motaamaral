@@ -3,7 +3,6 @@ layout: default
 title: Meditando no Pico sobre o presente e o futuro dos Açores
 date: 2023-05-30
 ---
-# Meditando no Pico sobre o presente e o futuro dos Açores
 
 Este ano, por motivo de doença, não pude comparecer nas comemorações do Dia dos Açores, celebradas nas Lages do Pico, com o mar em fundo dando ao lugar da sessão solene um enquadramento de rara beleza. Mas segui tudo através da transmissão pela RTP/Açores, que me fez sentir como estando mesmo lá.
 

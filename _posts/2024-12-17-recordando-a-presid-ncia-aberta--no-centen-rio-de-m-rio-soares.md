@@ -3,7 +3,6 @@ layout: default
 title: Recordando a Presidência Aberta, no centenário de Mário Soares
 date: 2024-12-17
 ---
-# Recordando a Presidência Aberta, no centenário de Mário Soares
 
 Junto-me de novo às devidas homenagens prestadas à memória de Mário Soares, por ocasião do centenário do seu nascimento, evocando o tempo que passou nos Açores, no desempenho das suas funções como Presidente da República. 
 

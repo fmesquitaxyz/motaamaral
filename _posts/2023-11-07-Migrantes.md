@@ -4,7 +4,6 @@ title: "Migrantes - um problema cada vez mais complicado!"
 date: 2023-11-07
 author: "João Bosco Mota Amaral"
 ---
-# Migrantes - um problema cada vez mais complicado!
 
 Correm as semanas e os meses, aparentemente cada vez com maior velocidade, e o problema dos migrantes, na Europa e em todo o Mundo, vai tornando-se cada vez mais complicado de solucionar.
 

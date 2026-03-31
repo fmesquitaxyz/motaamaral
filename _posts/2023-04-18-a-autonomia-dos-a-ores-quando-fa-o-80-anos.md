@@ -3,7 +3,6 @@ layout: default
 title: A Autonomia dos Açores quando faço 80 anos
 date: 2023-04-18
 ---
-# A Autonomia dos Açores quando faço 80 anos
 
 Com uma parte dos presentes na festa do meu 80º aniversário, organizada sob a égide do Presidente do PSD/Açores, José Manuel Bolieiro, fiz um caminho comum, na construção dos alicerces da Autonomia Política dos Açores. Julgo que podemos estar justamente orgulhosos dos resultados obtidos com o nosso trabalho de equipa! Decorridos quase meio século da arrancada da nossa aventura - que de uma verdadeira aventura se tratou, com sobressaltos e lutas, vitórias e derrotas, sempre com entusiamo e alegria - as nossa Ilhas estão hoje bem diferentes e para melhor, sem ignorar os novos e os antigos problemas que estão desafiando a sociedade açoriana.
 

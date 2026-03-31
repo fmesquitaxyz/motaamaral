@@ -3,7 +3,6 @@ layout: default
 title: Recordações de há meio século
 date: 2024-01-23
 ---
-# Recordações de há meio século
 
 Aproxima-se velozmente a data feliz em que se celebrarão os 50 anos da Revolução do 25 de Abril. Aqueles que viveram esse dia estão agora  a recordar os acontecimentos que o precederam. Para refrescar a minha memória fui procurar no arquivo pessoal, depositado na Biblioteca Pública de Ponta Delgada, os cadernos encadernados do meu Diário, iniciado quando fui eleito Deputado à Assembleia Nacional, em 1969 e interrompido durante o chamado Verão Quente de 1975, sem continuação posterior. Ainda assim são sete volumes e cheguei a pensar que se teriam perdido, mas afinal encontrei-os numa das caixas em que os meus documentos se encontram arquivados.
 

@@ -3,7 +3,6 @@ layout: default
 title: Crise geral?
 date: 2023-01-24
 ---
-# Crise geral?
 
 Vai pelo Mundo fora um ambiente doentio de crise, que já parece generalizada, quase nenhuns, ou muito poucos, países escapando ao desfiar de más notícias, que circulam com a rapidez do relâmpago.
 

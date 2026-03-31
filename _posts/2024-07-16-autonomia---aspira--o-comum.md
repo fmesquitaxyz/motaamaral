@@ -3,7 +3,6 @@ layout: default
 title: Autonomia – aspiração comum
 date: 2024-07-16
 ---
-# Autonomia – aspiração comum
 
 Repito hoje o título dado a um comunicado da Comissão Organizadora do Partido Popular Democrático Açoriano, datado de 13 de Setembro de 1974 e publicado no Correio dos Açores do dia 15 do mesmo mês, que fui encontrar no livro de José Andrade já aqui citado “Histórias do PPPDA”.
 

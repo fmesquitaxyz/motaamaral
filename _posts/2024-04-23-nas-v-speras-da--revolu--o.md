@@ -3,7 +3,6 @@ layout: default
 title: Nas vésperas da  Revolução
 date: 2024-04-23
 ---
-# Nas vésperas da  Revolução
 
 Já se aproxima a data há muito esperada dos 50 anos do 25 de Abril. Digo há muito esperada pelos que viveram com emoção esse dia verdadeiramente histórico, de ruptura com o regime ditatorial e de instauração das liberdades públicas, com uma amplitude nunca antes experimentada, no nosso País. Mas a maioria dos cidadãos portugueses e os numerosos estrangeiros que vivem entre nós olham para isso tudo como algo perfeita e totalmente adquirido e por isso, ao menos aparentemente, nem reagem ao apelo às celebrações cívicas, limitando-se a gozar o descanso que o feriado oficial permite.
 

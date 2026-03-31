@@ -3,7 +3,6 @@ layout: default
 title: Olhando para trás
 date: 2024-07-02
 ---
-# Olhando para trás
 
 Tenho estado a reler o livro de José Andrade "Histórias do P.P.D.A." e muito tenho recordado dos tempos fundacionais da Democracia nas nossas Ilhas, no período imediatamente a seguir à Revolução do 25 de Abril. Bastantes pormenores tinham-me passado da memória e agora tenho tido a possibilidade de os articular uns com os outros, num enriquecimento que, julgo eu, merece ser partilhado.
 

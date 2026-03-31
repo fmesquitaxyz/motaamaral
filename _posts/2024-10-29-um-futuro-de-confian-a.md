@@ -3,7 +3,6 @@ layout: default
 title: Um futuro de confiança
 date: 2024-10-29
 ---
-# Um futuro de confiança
 
 Foi sob a frase posta em título que decorreu no fim de semana passado o 26º Congresso Regional do PSD/Açores. E foi na verdade uma reunião tranquila, como corresponde a um partido que acaba de ganhar três eleições seguidas no mesmo ano, regionais, nacionais e europeias, conseguindo nestas últimas colocar um Deputado dos Açores no Parlamento Europeu, apesar da injusta entrada do nosso candidato em sétimo lugar na lista da AD. 
 

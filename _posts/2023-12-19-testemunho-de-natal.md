@@ -4,7 +4,6 @@ title: "Testemunho de Natal"
 date: 2023-12-19
 author: "João Bosco Mota Amaral"
 ---
-# Testemunho de Natal
 
 Não, não me rendi ao Natal esvaziado do sentido religioso antigo que parece pretender impor-se nestes nossos dias, reduzido a umas Festas Felizes que se desejam como se fossem apenas o assinalar de um evento de calendário, concretamente o final de um ano civil e o começo de um novo ano. Bem podem aumentar as luzes e os apelos ao consumismo mais ou menos desenfreado, que para mim o Natal será sempre a festa de aniversário do nascimento de Jesus, Deus feito homem para nos garantir a salvação eterna.
 

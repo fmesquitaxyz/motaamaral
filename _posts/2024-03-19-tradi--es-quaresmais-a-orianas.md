@@ -3,7 +3,6 @@ layout: default
 title: Tradições quaresmais açorianas
 date: 2024-03-19
 ---
-# Tradições quaresmais açorianas
 
 Têm vindo a perder-se algumas das antigas tradições quaresmais na nossa cidade de Ponta Delgada. Refiro-me sobretudo às procissões de Passos e do Enterro, que saíam da Matriz e tinham grande esplendor. Já a dos Terceiros saía da Igreja de São José, logo no primeiro Domingo da Quaresma, e percorria boa parte da cidade com os seus andores com as imagens de roca dos Santos Terceiros, mas eu já não me lembro de os ver senão armados na Capela anexa à Igreja Paroquial, cujos retábulos, foi há pouco anunciado, estão a cair e portanto clamando por um urgente restauro. Julgo ter ido na última procissão realizada, ainda nos anos 50 do século passado, levando uma forca do único andor com a imagem do Senhor atado à coluna e tenho memória de termos passado a Rua dos Mercadores, mas não me lembro do restante giro.
 

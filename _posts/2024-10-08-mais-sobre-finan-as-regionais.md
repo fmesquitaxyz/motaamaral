@@ -3,7 +3,6 @@ layout: default
 title: Mais sobre finanças regionais
 date: 2024-10-08
 ---
-# Mais sobre finanças regionais
 
 As recentes diligências do Presidente José Manuel Bolieiro em Lisboa, junto do Governo da República foram coroadas de êxito e por isso ele próprio e todos nós afinal estamos de parabéns! Tratou-se de fazer cumprir promessas de apoio antigas, em um dos casos bem antigas - refiro-me aos estragos do Furacão Lorenzo, ocorridos vai já para quase meia dezena de anos e logo causando visitas chorosas e compromissos a honrar futuramente e aliás prontamente esquecidos... Mas é natural que a situação financeira regional tenha sido também assunto de conversa com o Primeiro Ministro Luís Montenegro, originando soluções alternativas de cujo conteúdo certamente em breve a opinião pública açoriana será informada. 
 

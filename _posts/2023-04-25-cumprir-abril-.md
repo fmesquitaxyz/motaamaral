@@ -3,7 +3,6 @@ layout: default
 title: Cumprir Abril!
 date: 2023-04-25
 ---
-# Cumprir Abril!
 
 Ignoro se foi por inspiração de um certo poema de Fernando Pessoa, na "Mensagem", sobre faltar cumprir Portugal, que o termo que serve de título a esta crónica entrou na linguagem comum sobre a Revolução do 25 de Abril. O certo é que se tornou frequente ouvir dizer que falta cumprir alguma coisa do ideário da Revolução, simplificada pela alusão ao mês em que ocorreu, cada um dando à expressão em causa o seu próprio conteúdo, conforme os pontos de vista em que assenta afinal a sua posição ideológica.
 

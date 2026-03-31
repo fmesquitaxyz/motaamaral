@@ -3,7 +3,6 @@ layout: default
 title: O PSD em polvorosa
 date: 2023-05-23
 ---
-# O PSD em polvorosa
 
 Bastou um discurso acutilante do antigo líder do Partido, Aníbal Cavaco Silva, que foi Primeiro Ministro durante 10 anos e Presidente da República durante outros 10, para sacudir o torpor em que vegetava o PSD e lançar um novo entusiasmo nas hostes social-democratas, como se o Poder de repente ficasse próximo e mesmo à mão de se alcançar... Foi um bom contributo para animar a cena político-partidária e passar para um segundo plano o triste espectáculo em curso na Assembleia da República, com a actividade da Comissão de Inquérito à TAP, cada vez mais embrenhada num verdadeiro processo ao funcionamento das nossas instituições democráticas, concretamente do Governo, que aparenta não estar dando boa conta de si.
 

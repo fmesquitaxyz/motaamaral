@@ -3,7 +3,6 @@ layout: default
 title: Unanimismo sobre a Universidade dos Açores
 date: 2023-01-17
 ---
-# Unanimismo sobre a Universidade dos Açores
 
 Até parecia que os discursos feitos na Sessão Solene comemorativa do 47º aniversário da Universidade dos Açores tinham sido combinados, mas não foram: - apenas exprimiram a unanimidade de pontos de vista existente entre os mais altos responsáveis da nossa Região Autónoma e da própria Instituição sobre a decisiva importancia da mesma para a sociedade açoriana, no presente e no futuro!
 

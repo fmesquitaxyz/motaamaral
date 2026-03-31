@@ -3,7 +3,6 @@ layout: default
 title: Sobre abusos e relatórios
 date: 2023-02-28
 ---
-# Sobre abusos e relatórios
 
 Tinha prometido a mim próprio não escrever sobre os abusos sexuais sobre menores no âmbito da Igreja Católica e o relatório a eles referente, encomendado pela própria Conferência dos Bispos Portugueses, divulgado recentemente com grande eco na Comunicação Social. É uma história tão triste, que preferiria não ter de revolver o assunto!
 

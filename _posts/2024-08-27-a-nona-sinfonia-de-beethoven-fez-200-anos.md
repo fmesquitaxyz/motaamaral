@@ -3,7 +3,6 @@ layout: default
 title: A Nona Sinfonia de Beethoven fez 200 anos
 date: 2024-08-27
 ---
-# A Nona Sinfonia de Beethoven fez 200 anos
 
 Foi já há alguns meses que passou o ducentésimo aniversário da estreia da Nona Sinfonia, em 7 de Maio. Ando desde tal altura com o tema em carteira, mas outros têm-se atravessado, com maior actualidade. Em todo o caso, não podia deixar de dedicar algumas reflexões a esse acontecimento, pois tenho a peça em questão como uma das obras maiores da Grande Música, que não me canso nunca de ouvir. Aliás, já sobre ela escrevi vários textos aqui publicados. 
 

@@ -3,7 +3,6 @@ layout: default
 title: Recordando o combate pela Autonomia na Assembleia Constituinte
 date: 2024-07-23
 ---
-# Recordando o combate pela Autonomia na Assembleia Constituinte
 
 Logo nos primeiros tempos de funcionamento, a Assembleia Constituinte elegeu uma Comissão, formada por elementos dos vários partidos políticos nela representados, com o mandato de preparar um texto sobre o novo regime autonómico a instituir nos Arquipélagos dos Açores e da Madeira. Esta Comissão teve como Presidente o Deputado Jaime Gama e tanto eu como Américo Viveiros fomos também eleitos membros dela.
 

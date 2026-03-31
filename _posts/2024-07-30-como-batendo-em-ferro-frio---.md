@@ -3,7 +3,6 @@ layout: default
 title: Como batendo em ferro frio...
 date: 2024-07-30
 ---
-# Como batendo em ferro frio...
 
 Não me custa nada insistir em algumas matérias fundamentais relativas à Autonomia Constitucional dos Açores, mesmo quando parece que estou afinal a bater em ferro frio, já que afinal o faço com a especial facilidade de recordar apenas tarefas por mim próprio levadas a cabo, com a inestimável colaboração de todo o PSD/Açores, em sintonia afinal com as pretensões históricas do Povo Açoriano.
 

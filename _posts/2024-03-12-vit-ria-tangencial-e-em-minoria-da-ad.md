@@ -3,7 +3,6 @@ layout: default
 title: Vitória tangencial e em minoria da AD
 date: 2024-03-12
 ---
-# Vitória tangencial e em minoria da AD
 
 Teve um certo sabor amargo a vitória nacional da AD nas eleições legislativas de Domingo passado. O PS foi copiosamente derrotado, caindo da maioria absoluta de 120 Deputados que detinha na Assembleia da República para a liderança da Oposição com cerca de 80, partindo do princípio que ainda irá eleger algum nos círculos eleitorais da Emigração. Mas o grande vencedor das eleições foi de facto o Chega, que triplicou o número de votos populares recebidos e quadruplicou o seu Grupo Parlamentar, ficando à beira dos 20% dos sufrágios e com mais de um milhão de apoiantes, tal como em tempos aconteceu com outro partido de protesto, o PRD.
 

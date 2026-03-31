@@ -3,7 +3,6 @@ layout: default
 title: De zero a quatro
 date: 2024-06-18
 ---
-# De zero a quatro
 
 Após um período de cinco anos sem representantes açorianos no Parlamento Europeu, eis que mercê de circunstâncias diversas passámos a ter duas Eurodeputadas e dois Eurodeputados oriundos das nossas Ilhas com assento no Hemiciclo de Estrasburgo! Não é pouca coisa para uma região pequena como é a nossa, embora haja países-membros da União Europeia com dimensão populacional próxima  (Luxemburgo, Malta, Chipre)  e até com direito a uma representação mais numerosa, correspondente a seis Eurodeputados.
 

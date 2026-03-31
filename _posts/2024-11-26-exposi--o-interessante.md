@@ -3,7 +3,6 @@ layout: default
 title: Exposição interessante
 date: 2024-11-26
 ---
-# Exposição interessante
 
 Está aberta ao público, desde sexta-feira passada, no rés do chão do Palácio da Conceição, em Ponta Delgada, uma exposição de peças do meu espólio, depositado no Arquivo Regional, incluída no programa oficial das comemorações dos 50 anos da Revolução do 25 de Abril. Embora me diga respeito, julgo que ninguém levará a mal que me refira a tal exposição, por nela se apresentarem diversos elementos valiosos para quem se interessa pela vida pública dos Açores nos tempos mais recentes. 
 

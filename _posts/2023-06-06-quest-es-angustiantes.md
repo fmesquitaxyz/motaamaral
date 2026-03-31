@@ -3,7 +3,6 @@ layout: default
 title: Questões angustiantes
 date: 2023-06-06
 ---
-# Questões angustiantes
 
 Tenho-me interrogado muitas vezes sobre quais serão as razões por que o nosso País continua na cauda da Europa em termos de desenvolvimento económico, social e cultural, ao fim de quase quatro décadas de participação no processo de integração europeia. E, pior ainda, como é possível que, ano após ano, vá sendo ultrapassado por outros países que aderiram posteriormente à União Europeia e se encontravam antes disso em posição mais atrasada do que Portugal, alguns deles tendo sido mesmo dominados e explorados de má maneira pelo imperialismo russo desde o fim da II Guerra Mundial e até à queda do Muro de Berlim, ou seja quase durante meio século.
 

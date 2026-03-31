@@ -3,7 +3,6 @@ layout: default
 title: "Acerca do Acordo Luso-Americano sobre facilidades militares nos Açores"
 date: 2025-07-01
 ---
-# Acerca do Acordo Luso-Americano sobre facilidades militares nos Açores
 
 Falou-se muito ultimamente sobre o tema em título. A versão mais recente de tal Acordo é de 1995 e foi negociada quando ainda tinha responsabilidades governativas na nossa Região Autónoma. Recordo bem um telefonema do então Ministro dos Negócios Estrangeiros, José Manuel Durão Barroso, destinado a acertar pormenores no texto final.
 
@@ -24,3 +23,4 @@ Não recordo se o estacionamento de aviões tanque para reabastecimento em voo a
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

@@ -4,7 +4,6 @@ title: "Bolieiro surpreende"
 date: 2023-12-05
 author: "João Bosco Mota Amaral"
 ---
-#  Bolieiro surpreende
 
 O Presidente do Governo surpreendeu toda a gente ao deixar cair a ideia de fazer um novo Orçamento para submeter à Assembleia Legislativa e reclamar, perante o Presidente da República, a dissolução da mesma e a realização de eleições gerais antecipadas. Por mim devo declarar que não estava à espera disso, mas congratulo-me vivamente com o passar da palavra ao Povo Açoriano, para que se pronuncie sobre a crise política instalada e escolha os caminhos do seu futuro para os próximos quatro anos.
 
@@ -13,6 +12,7 @@ Nos tempos mais recentes, José Manuel Bolieiro tem vindo a dar-nos surpresas se
 O Presidente do Governo soltou-se da imagem que se lhe pretendeu colar de hesitação e até de temor reverencial perante os seus parceiros, no esquema político por ele próprio engendrado, com grande habilidade, para afastar, após 24 anos de governo consecutivos, o PS do Poder. Em vésperas de eleições decisivas é fundamental saber quem manda e isso Bolieiro já não deixa lugar a dúvidas!
 
 Todos os cidadãos ganham com tal clarificação. Não era bom que se alimentassem dúvidas sobre o papel liderante do nosso Presidente. E para acabar com tais dúvidas todos devem dar a sua prestimosa colaboração, cada um no lugar que desempenha na cena política actual. As ânsias excessivas de visibilidade podem deitar tudo a perder. E o que sobretudo interessa é sublinhar o trabalho conjunto, como de resto fazem, muito de caso pensado, quero crer, os Deputados do PSD/Açores, que sempre começam por referir, ao enumerar as coisas boas que o Governo tem feito, os benefícios sociais dirigidos aos mais pobres e aos idosos.
+
 Que o desafio não é fácil, é ponto em que estaremos todos mais ou menos de acordo. Há no ar um certo cansaço da política e dos políticos e uma vaga de descrédito corre sobre ambos. Julgo que há culpas várias na origem desse mal-estar, mas uma parte grande deve ser assacada a comportamentos erróneos dos actores em cena e de quem os acompanha, parecendo cultivar o gosto de por em evidência as suas fraquezas e insucessos.
 
 Felizmente entre nós não têm pululado, ao contrário do que se vê no plano político nacional, os casos de corrupção, ou pelo menos as suspeitas sobre a existência de tal flagelo; o mesmo se diga das greves constantes nos transportes, nas escolas e nos hospitais. Sob estes pontos de vista a Autonomia Constitucional tem servido de barreira protectora ao sossego do Povo Açoriano.

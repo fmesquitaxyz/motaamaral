@@ -3,7 +3,6 @@ layout: default
 title: "Sobre a crise europeia"
 date: 2025-05-13
 ---
-# Sobre a crise europeia
 
 Recuemos oitenta anos para trás e estaremos no final da IIª Guerra Mundial, festejado nestes últimos dias como a vitória das Forças Aliadas sobre a Alemanha, dominada pelo perverso nazismo, personificado em Adolf Hitler e seus sequazes. A Europa está em boa parte destruída pelos intensos bombardeamentos de parte a parte; e em todo o Mundo o conflito custou a vida a cerca de 60 milhões de pessoas.
 
@@ -26,3 +25,4 @@ São muitas as ameaças existentes, incluindo a agressividade do regime russo, m
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

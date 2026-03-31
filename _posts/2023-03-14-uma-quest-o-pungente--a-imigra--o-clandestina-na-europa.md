@@ -3,7 +3,6 @@ layout: default
 title: "Uma questão pungente: a imigração clandestina na Europa"
 date: 2023-03-14
 ---
-# Uma questão pungente: a imigração clandestina na Europa
 
 Agora que se aproxima já a Primavera e as condições no mar vão melhorando, volta a surgir a onda de imigrantes clandestinos, provenientes de países pobres da África e da Ásia, navegando em condições muito perigosas em direcção às costas europeias. Nos Estados Unidos o mesmo fenómeno se verifica, mas a origem dos imigrantes é o Continente Americano e a aproximação às fronteiras é feita de autocarro ou mesmo a pé.
 

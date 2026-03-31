@@ -3,7 +3,6 @@ layout: default
 title: Diálogo necessário
 date: 2024-09-17
 ---
-# Diálogo necessário
 
 Sei que não agradou a toda a gente, mas por mim devo declarar que gostei de ver na Comunicação Social da semana passada os presidentes do PSD/Açores e do PS/Açores, respectivamente, José Manuel Boleiro e Francisco César, em amena conversa sobre importantes temas de política regional, culminando com a indicação de um nome consensualizado para Presidente do Conselho Económico e Social. 
 

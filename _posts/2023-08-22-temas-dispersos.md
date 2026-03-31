@@ -4,7 +4,6 @@ title: "Temas dispersos próprios da \"silly season\""
 date: 2023-08-22
 author: "João Bosco Mota Amaral"
 ---
-# Temas dispersos próprios da "silly season"
 
 Com os principais dirigentes políticos, nacionais e regionais, a banhos, em ambiente de férias, os temas abordados pela opinião pública ficam-se pela superfície e por vezes parece mesmo que está tudo meio tolo: - é a "silly season"!
 
@@ -23,5 +22,8 @@ Não oculto a minha perplexidade perante o cúmulo de entidades com funções de
 Nada me move contra a GNR e tenho até tido como meus alunos, na Universidade dos Açores, em cursos de Licenciatura e de Mestrado, militares da Guarda, homens e mulheres, das nossas ilhas e de fora delas, empenhados e proficientes nos estudos. Mas devo lembrar que a GNR nunca exerceu nos Açores as suas funções, que antigamente equivaliam às de uma Polícia Rural, estando as mesmas confiadas à PSP. Só quando a Guarda Fiscal foi extinta é que os velhos guardas fiscais dos portos passaram a ostentar o nome da GNR.
 
 É possível que haja agora leis novas, mas serão então recentes e certamente terão sido acertadas com o Governo Regional, pois se o não foram podemos então estar perante uma operação de dominação pelo Poder Central de um sector muito sensível e que até aqui tem escapado totalmente à tutela do Poder Regional Autónomo. É preocupante que o Governo de Lisboa tenha mãos largas para trazer para os Açores a GNR, ao mesmo tempo que descura os seus Serviços de Justiça, tribunais e cadeias, nomeadamente, a PSP, e as próprias Forças Armadas, reduzidas a mínimos quase simbólicos, elas que tão bons serviços têm prestado e por isso são tão apreciadas e mesmo queridas entre nós.
+
   
+
 João Bosco Mota Amaral
+

@@ -3,7 +3,6 @@ layout: default
 title: Apreensões sobre a China
 date: 2024-06-25
 ---
-# Apreensões sobre a China
 
 Vai por aí um grande alarido sobre a China e o comportamento, no plano interno e no plano internacional, dos respectivos Órgãos Governativos. Verifica-se com preocupação o crescimento do poder chinês no Mundo e a agressividade demostrada pelas suas Forças Armadas relativamente a Taiwan, antigamente designada com o nome de Formosa, dado pelos navegadores portugueses que primeiro a visitaram. Agora a questão aparece alargada também às Filipinas e à invocação de um pretendido acesso exclusivo aos mares nas suas imediações, que a China invoca como sendo seu e até para isso tem vindo a construir e armar umas quantas ilhas artificiais sobre rochedos  por lá existentes.
 

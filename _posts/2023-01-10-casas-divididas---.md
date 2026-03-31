@@ -3,7 +3,6 @@ layout: default
 title: Casas divididas...
 date: 2023-01-10
 ---
-# Casas divididas...
 
 Deixaram-me horrorizado as imagens, transmitidas em directo pela televisão, dos graves distúrbios ocorridos no Domingo passado em Brasília. Já tinha acontecido o mesmo quando foi do assalto ao Capitólio dos Estados Unidos, há dois anos atrás.
 

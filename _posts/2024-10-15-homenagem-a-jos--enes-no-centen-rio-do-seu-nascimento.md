@@ -3,7 +3,6 @@ layout: default
 title: Homenagem a José Enes no centenário do seu nascimento
 date: 2024-10-15
 ---
-# Homenagem a José Enes no centenário do seu nascimento
 
 A Universidade dos Açores prestou a devida homenagem ao seu Fundador e Primeiro Reitor, Professor Doutor José Enes, na semana passada, num colóquio organizado, entre diversas outras entidades, pelo Centro de Estudos Humanísticos da Faculdade de Ciências Sociais e Humanas, cuja Directora é a Professora Doutora Maria do Céu Fraga. Infelizmente, não pude comparecer, por motivo de doença, o que muito lamento, e por isso me apresso a unir-me a tal homenagem, evocando por meu turno uma personagem com papel fundamental e mesmo decisivo na construção do presente e do futuro dos Açores. 
 

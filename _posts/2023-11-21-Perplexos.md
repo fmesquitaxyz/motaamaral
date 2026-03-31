@@ -4,7 +4,6 @@ title: "Perplexos"
 date: 2023-11-21
 author: "João Bosco Mota Amaral"
 ---
-#  Perplexos
 
 O título deste texto exprime o modo como se sentem muitos dos que atentamente observam a vida política nacional e ainda não conseguiram perceber as razões que nos conduziram à presente situação.
 

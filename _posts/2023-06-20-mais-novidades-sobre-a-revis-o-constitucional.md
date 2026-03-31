@@ -3,7 +3,6 @@ layout: default
 title: Mais novidades sobre a revisão constitucional
 date: 2023-06-20
 ---
-# Mais novidades sobre a revisão constitucional
 
 Tenho seguido a discussão na especialidade dos vários projectos de lei de revisão constitucional, a seu tempo apresentados por partidos com assento na Assembleia da República, através dos interessantes relatos que da mesma tem feito o Deputado Francisco Pimentel, nos seus artigos em boa hora divulgados na Imprensa regional.
 

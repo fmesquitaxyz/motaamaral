@@ -4,7 +4,6 @@ title: "Lições das eleições madeirenses"
 date: 2023-09-26
 author: "João Bosco Mota Amaral"
 ---
-# Lições das eleições madeirenses
 
 Reflectindo sobre a noite eleitoral de Domingo passado na Região Autónoma da Madeira e sobre os resultados saídos das urnas, julgo ser possível retirar algumas lições de aplicação geral, muito úteis para os tempos que se aproximam, no plano nacional e também no da nossa Região Autónoma dos Açores.
 
@@ -21,3 +20,4 @@ Bombásticos compromissos pré-eleitorais facilmente descambam em exercícios pe
 Não me recordo de ter havido em anteriores noites eleitorais, no Funchal, líderes partidários nacionais, acompanhados de outros dirigentes do mesmo nível, pondo-se em bicos dos pés para aparecerem na televisão, fazendo declarações políticas sobre os resultados e com antecipação sobre os dirigentes regionais. Alberto João Jardim nunca o teria consentido! Mas agora os tempos são outros e entramos num clima de vale tudo... Foi, a meu ver, um momento penoso e particularmente infeliz! Duvido que se tirem daí quaisquer vantagens do ponto de vista da percepção da opinião pública sobre o valor e extensão da Autonomia Constitucional dos Arquipélagos Portugueses do Atlântico.
 
 João Bosco Mota Amaral
+

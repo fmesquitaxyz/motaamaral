@@ -3,7 +3,6 @@ layout: default
 title: Autonomia e dimensão externa dos Açores
 date: 2024-09-03
 ---
-# Autonomia e dimensão externa dos Açores
 
 Estava convencido de já ter falado e escrito muitas vezes sobre o tema em epígrafe, de modo que já seria conhecido por todos. Afinal, vejo-me forçado a voltar ao assunto, por ter lido recentemente afirmações falsas , devidas a ignorância ou má fé, relativas à matéria em questão. 
 

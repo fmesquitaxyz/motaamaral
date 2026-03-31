@@ -3,7 +3,6 @@ layout: default
 title: "Na semana das Festas do Senhor"
 date: 2025-05-20
 ---
-# Na semana das Festas do Senhor
 
 Deixei a porta da varanda do meu quarto entreaberta para ouvir melhor, ao meio dia, os primeiros foguetes que assinalam a semana das Festas do Senhor Santo Cristo dos Milagres. E, à hora certa, depois do toque dos sinos, aí estavam eles a estralejar, despertando alegria, apesar do tempo carregado de humidade e de chuviscos ocasionais.
 
@@ -26,3 +25,4 @@ Este ano, por motivos de saúde, vou ver as Festas na televisão, fazendo assim 
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

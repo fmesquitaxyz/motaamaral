@@ -3,7 +3,6 @@ layout: default
 title: Defender os Açores
 date: 2024-02-27
 ---
-# Defender os Açores
 
 Foi sob o expressivo propósito de "Defender os Açores" que a Coligação liderada por José Manuel Bolieiro, e que inclui  PSD, o CDS e o PPM, apresentou os candidatos que propõe ao voto do Povo Açoriano nas eleições para a Assembleia da República, marcadas para o próximo dia 10 de Março. A lista inclui pessoas de todas as nossas ilhas e é encabeçada por Paulo Moniz, já com provas dadas no desempenho da função, dentro e fora do Hemiciclo do Palácio de São Bento.
 

@@ -3,7 +3,6 @@ layout: default
 title: Feliz coincidência de pontos de vista
 date: 2023-05-02
 ---
-# Feliz coincidência de pontos de vista
 
 Deu-me muita satisfação verificar que vão surgindo vozes autorizadas a reclamar a criação de um novo órgão político e de governo europeu, concretamente uma Assembleia Parlamentar, composta por delegações dos Parlamentos Nacionais e situada ao mesmo nível de decisão do Parlamento Europeu. De entre os subscritores de uma tomada de posição com tal conteúdo, divulgada recentemente na Imprensa, encontra-se Thomas Piketty, professor universitário de Economia em França, com livros publicados em várias línguas, dos quais se destaca o exaustivo estudo intitulado “O Capital no século XX”, já traduzido em Portugal, que faz do seu Autor um sério candidato ao Prémio Nobel da Economia.
 

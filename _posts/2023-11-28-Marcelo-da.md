@@ -4,7 +4,6 @@ title: "Marcelo dá um passo em frente"
 date: 2023-11-28
 author: "João Bosco Mota Amaral"
 ---
-#  Marcelo dá um passo em frente
 
 Parece-me difícil interpretar a decisão do Presidente da República, de chamar a Belém os representantes dos partidos com assento na nossa Assembleia Legislativa, de outro modo que não seja de pretender significar um maior envolvimento pessoal do próprio com os assuntos da política regional, ao menos no tocante à Região Autónoma dos Açores.
 

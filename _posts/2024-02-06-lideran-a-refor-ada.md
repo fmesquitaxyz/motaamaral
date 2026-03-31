@@ -3,7 +3,6 @@ layout: default
 title: Liderança reforçada
 date: 2024-02-06
 ---
-# Liderança reforçada
 
 Os resultados das eleições legislativas regionais de Domingo passado reforçam a liderança política do Presidente do Governo José Manuel Bolieiro. Aumentando o número de votos recebidos pela Coligação em que se empenhou, recebeu, junto com uma expressiva vitória, um mandato inequívoco para liderar o Governo da Região Autónoma dos Açores pelo período do mandato, que é de quatro anos, mas no caso concreto vai mesmo para além disso, já que as eleições foram antecipadas e só as haverá de novo, em princípio, em Outubro de 2028.
 

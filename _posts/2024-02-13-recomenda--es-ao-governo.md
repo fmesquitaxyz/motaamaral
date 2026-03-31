@@ -3,7 +3,6 @@ layout: default
 title: Recomendações ao Governo
 date: 2024-02-13
 ---
-# Recomendações ao Governo
 
 Já aqui me referi, criticamente, ao costume parlamentar estabelecido entre nós de inundar a ordem do dia dos diversos parlamentos existentes em Portugal com a votação de recomendações ao Governo. Não se trata de um instrumento previsto nos regimentos respectivos, mas o certo é que se tem vindo a generalizar tal praxe e acaba por ser admitida como um meio de intervenção política dos partidos com assento parlamentar.
 

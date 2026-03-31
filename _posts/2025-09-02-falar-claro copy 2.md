@@ -3,7 +3,6 @@ layout: default
 title: Falar claro
 date: 2025-09-02
 ---
-# Falar claro
 
 Não me parece justificada a gritaria acerca das recentes declarações do Presidente da República, Marcelo Rebelo de Sousa, sobre o comportamento do presidente americano, que qualificou como "um activo russo". Objectivamente, como tal se tem comportado, adoptando as posições russas acerca da necessária cedência de território pela Ucrânia como condição para a paz.
 

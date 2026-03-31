@@ -4,7 +4,6 @@ title: "Valor estratégico permanente dos Açores"
 date: 2023-09-05
 author: "João Bosco Mota Amaral"
 ---
-# Valor estratégico permanente dos Açores
 
 A História ensina-nos que as nossas ilhas sempre foram vistas como uma base importante, no meio do Oceano Atlântico, para apoiar a navegação e as comunicações, entre os dois continentes vizinhos. Nos tempos mais remotos, por aqui faziam escala as naus da Índia e a “Flota de la Plata”, espanhola, bem como os corsários e piratas de vária origem em busca fácil das riquezas de tão longe transportadas. Com a navegação a vapor aqui se instalaram depósitos de carvão e mais tarde de óleo, além de oficinas de reparação naval, das quais ainda recordo as derradeiras, instaladas na Canada da Doca. Os cabos submarinos também por cá vieram amarrar, contribuindo para melhor nos ligar ao Mundo.
 
@@ -27,3 +26,4 @@ Julgo que o grande falhanço do regime ditatorial foi considerar que as operaç�
 A trilogia do Embaixador Bernardo Futscher Pereira termina com a Revolução do 25 de Abril, promovida pelo Movimento das Forças Armadas, com os objectivos declarados de descolonizar, democratizar e desenvolver o País. Deixou-me surpreendido a afirmação de que com o fim do Império, Portugal saiu da História, com H grande. Para mim, parece que finalmente entrou nela e mais alto nela se posicionará, quando puser cobro aos últimos traços de dominação, que ainda cultiva, sobre as Regiões Autónomas dos Açores e da Madeira.
 
 João Bosco Mota Amaral
+

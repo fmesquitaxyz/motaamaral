@@ -3,7 +3,6 @@ layout: default
 title: Açores e Gronelândia
 date: 2025-01-14
 ---
-# Açores e Gronelândia
 
 Logo se nos deparou o caso da Gronelândia, quando começamos a estudar, no âmbito do Governo da nossa Região Autónoma, a questão da adesão às Comunidades Europeias, decidida pelo I Governo Constitucional com o confessado intuito de dar um rumo novo a Portugal, agora como País Europeu de pleno direito, uma vez terminados os 500 anos de imperialismo português.
 

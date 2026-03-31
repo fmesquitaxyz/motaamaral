@@ -3,7 +3,6 @@ layout: default
 title: Álvaro Monjardino
 date: 2024-08-20
 ---
-# Álvaro Monjardino
 
 O recente falecimento de Álvaro Monjardino, que enlutou toda a nossa Região Autónoma, que tanto lhe fica devendo, mas de uma forma especial a sua Família e Amigos, a quem renovo as minhas condolências, trouxe-me à memória a nossa primeira colaboração em serviço dos Açores.  
 

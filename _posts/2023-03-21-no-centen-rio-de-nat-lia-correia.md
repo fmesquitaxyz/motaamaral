@@ -3,7 +3,6 @@ layout: default
 title: No centenário de Natália Correia
 date: 2023-03-21
 ---
-# No centenário de Natália Correia
 
 Hesitei se havia de escrever o nome completo da famosa Poetisa ou apenas o seu nome próprio - Natália - como acontece com Antero e outros génios, que gozam de tal atributo. E a verdade é que se vai fazendo a prova do tempo, que passa sem que a memória dela se dilua e caia no esquecimento, como acontece com tantos outros escritores, outrora lidos e comentados, hoje postos na prateleira, não lidos nem comentados, simplesmente ignorados.
 

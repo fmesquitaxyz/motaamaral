@@ -3,7 +3,6 @@ layout: default
 title: Discurso de líder
 date: 2024-01-16
 ---
-# Discurso de líder
 
 Fez uma entrada triunfal no lugar onde se realizava o comício, no meio de aplausos entusiásticos e de uma onda de bandeiras, onde havia muitas azuis e brancas, dos Açores, predominando, porém, as do PSD, mas também com outras do CDS e do PPM, partidos integrantes da presente Coligação de Governo, que concorre às eleições do começo de Fevereiro.
 

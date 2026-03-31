@@ -4,7 +4,6 @@ title: "A Universidade dos Açores sempre à frente"
 date: 2023-12-12
 author: "João Bosco Mota Amaral"
 ---
-# A Universidade dos Açores sempre à frente
 
 Podia hoje referir-me à conclusão - finalmente! - do processo de assinatura do protocolo sobre o financiamento da nossa Universidade, prometido há anos e repetidamente adiado pelos sucessivos responsáveis do Governo da República. A Magnífica Reitora está de parabéns e a própria Universidade também ( referência merece ainda o anterior Reitor Magnífico, Professor João Luís Gaspar ), vendo reconhecida a razão que lhe assistia em solicitar a revisão das regras aplicáveis sobre verbas a transferir para o seu orçamento, a fim de serem tidas em conta os sobrecustos da tripolaridade, essencial ao projecto universitário açoriano.
 
@@ -21,6 +20,7 @@ Outro colóquio de importância esteve a cargo do Centro de Estudos Humanístico
 Dispus-me, como membro do Centro de Estudos Humanísticos, a colaborar no colóquio, abordando o tema “Francisco Faria e Maia e a geração açoriana dele contemporânea”. E pus-me logo a ler os livros da sua autoria, há muito pendentes nas minhas estantes, “Capitães dos Donatários” e “Capitães-Generais”.
 
 Eis senão quando, já perto da data do colóquio, conversando com as organizadoras, verifico que afinal estava enganado e que havia um outro Francisco Faria e Maia, companheiro de Antero em Coimbra e amigo dele, mais dado às questões da Filosofia do Direito, e era sobre ele que versariam as comunicações a apresentar na reunião científica. Confrontado com tal engano, só me restou seguir em frente e falar perante os participantes do colóquio do tema que realmente tinha estudado.
+
 Devo dizer que o engano me foi proveitoso. Há já muito que desejava ler os livros em causa e assim tive oportunidade de o fazer. Acresce que se trata de trabalhos de valor, feitos com seriedade histórica, recorrendo às fontes primárias, contidas em documentos publicados no “Arquivo dos Açores”. Deles recolhi a confirmação de que a vida dos primeiros povoadores das nossas ilhas foi muito dura e que ao longo dos séculos aqui se viveu uma verdadeira saga de resistência aos fenómenos telúricos de forte impacto, como a subversão de Vila Franca e várias erupções vulcânicas, bem como aos piratas de diversa procedência e a diversas tentativas de domínio militar. Sobre a variação de posição das autoridades locais perante as flutuações da política nacional também fiquei esclarecido, atribuindo-as à fragilidade humana e institucional infelizmente existente.
 
 Quanto à geração contemporânea de Francisco Faria e Maia, associada à dita Segunda Campanha Autonomista, só posso dizer que se consideraria certamente frustrada, por nada ter alcançado do Poder Central, excepto um decreto da Ditadura Nacional, aliás de bem curta duração por ter sido revogado quando Salazar, dois meses depois, chegou ao Ministério das Finanças.

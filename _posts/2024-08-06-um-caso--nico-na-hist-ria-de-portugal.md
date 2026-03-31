@@ -3,7 +3,6 @@ layout: default
 title: Um caso único na História de Portugal
 date: 2024-08-06
 ---
-# Um caso único na História de Portugal
 
 O nosso País é, como todos sabemos, um dos mais antigos países da Europa, com fronteiras definidas e firmadas no Continente Europeu desde o século XIII. As grandes viagens marítimas de descoberta levaram ao estabelecimento de sucessivos impérios coloniais, primeiro em Marrocos, depois no Oriente, a seguir no Brasil, por fim em África. Todos se esboroaram, não sem ter permitido que ocorressem episódios de exploração, que hoje profundamente lamentamos, dos quais se destaca o horrendo tráfico negreiro, profundamente por mim deplorado, quando estive na qualidade de Presidente da Assembleia da República em Angola, no discurso então proferido perante a Assembleia Nacional Popular daquele país.
 

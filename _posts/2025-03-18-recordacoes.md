@@ -4,7 +4,6 @@ title: Recordações de há meio século
 date: 2025-03-18
 ---
 
-# Recordações de há meio século
 
 Por estes dias, há cinquenta anos atrás, andávamos, nos meios do então PPD, em São Miguel, a preparar o primeiro grande comício do partido, para o qual estava prevista a presença de um dos fundadores, Joaquim Magalhães Mota, nem mais nem menos.
 

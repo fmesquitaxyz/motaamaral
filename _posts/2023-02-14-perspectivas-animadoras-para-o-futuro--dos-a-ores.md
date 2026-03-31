@@ -3,7 +3,6 @@ layout: default
 title: Perspectivas animadoras para o futuro  dos Açores
 date: 2023-02-14
 ---
-# Perspectivas animadoras para o futuro  dos Açores
 
 Gostei muito de ouvir o Presidente do Governo da nossa Região Autónoma, José Manuel Bolieiro, falar com tanta convicção das perspectivas animadoras que estão diante dos olhos de todos nós quanto ao futuro dos Açores.
 

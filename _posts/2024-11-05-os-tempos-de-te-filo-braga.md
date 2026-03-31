@@ -3,7 +3,6 @@ layout: default
 title: Os tempos de Teófilo Braga
 date: 2024-11-05
 ---
-# Os tempos de Teófilo Braga
 
 Em boa hora decidiu a Universidade dos Açores associar-se às celebrações do centenário da morte de Teófilo Braga, que tiveram um merecido eco nacional. Destacou-se na organização de eventos comemorativos a Câmara Municipal de Ponta Delgada, por ser a nossa cidade o berço do homenageado. Especial relevo alcançou a romagem ao túmulo do escritor, que se encontra no Panteão Nacional, com deposição de uma coroa de flores, assistindo o Presidente da República, mas a meritória iniciativa partiu do Presidente da Câmara, Pedro Nascimento Cabral. 
 

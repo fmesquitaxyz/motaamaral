@@ -21,7 +21,7 @@ def double_newlines(input_file, output_file):
 
     front_matter = generate_front_matter(title, date)
     modified_content = (
-        front_matter + f"# {title}\n\n" + re.sub(r"(?<!\n)\n", "\n\n", text)
+        front_matter + re.sub(r"(?<!\n)\n", "\n\n", text)
     )
 
     # Generate the output file name with date and title

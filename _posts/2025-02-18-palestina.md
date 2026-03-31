@@ -3,7 +3,6 @@ layout: default
 title: Palestina para os Palestinianos
 date: 2025-02-18
 ---
-# Palestina para os Palestinianos
 
 Pudemos seguir todos nos últimos meses, quase se pode dizer em directo, o desenrolar da guerra entre Israelitas e Palestinianos, que aliás decorre há bastantes décadas, com períodos de acalmia e outros de confrontação aberta.
 
@@ -32,3 +31,4 @@ A solução dos dois estados, com garantia de respeito mútuo, partilhada pelos 
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

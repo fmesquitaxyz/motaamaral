@@ -3,7 +3,6 @@ layout: default
 title: Olhando para trás… (2)
 date: 2024-07-09
 ---
-# Olhando para trás… (2)
 
 Comento hoje alguns aspectos das questões apresentadas na semana passada neste mesmo local.
 

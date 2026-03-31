@@ -3,7 +3,6 @@ layout: default
 title: Por mais um ano, estamos nas Festas
 date: 2023-05-09
 ---
-# Por mais um ano, estamos nas Festas
 
 Estava mesmo começando a escrever este texto, quando fui interrompido pelo estralejar dos foguetes lançados no Campo de São Francisco, para assinalar que começou a semana das Festas do Senhor Santo Cristo dos Milagres do ano em curso; levantei-me da mesa de trabalho e abri a varanda, para melhor os ouvir e encher-me de regozijo. Não me chegaram aos ouvidos os repiques dos sinos, mas é natural que também tenham soado, ampliando o sinal de que as Festas estão já à porta.
 

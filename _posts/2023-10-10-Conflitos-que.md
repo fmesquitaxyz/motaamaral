@@ -4,7 +4,6 @@ title: "Conflitos que vão durando..."
 date: 2023-10-10
 author: "João Bosco Mota Amaral"
 ---
-# Conflitos que vão durando...
 
 Abundam por todo o Mundo situações conflituosas, em alguns casos verdadeiras guerras, aos quais já nos habituámos que durem e durem por muitos anos e persistam sem solução à vista. Fala-se em alguns desses casos de “conflitos congelados” e quase se deixou de procurar para eles resolução que dê resposta equilibrada aos vários interesses pendentes. Entre esses casos avulta a confrontação israelo-árabe, que presentemente conhece uma crise muito séria, a qual ameaça pôr em risco a estabilidade do Médio Oriente e até do Mundo inteiro, tantas são as paixões que à volta dela se despertam.
 

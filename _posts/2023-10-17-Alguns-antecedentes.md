@@ -4,7 +4,6 @@ title: "Alguns antecedentes históricos do presente conflito israelo-árabe"
 date: 2023-10-17
 author: "João Bosco Mota Amaral"
 ---
-# Alguns antecedentes históricos do presente conflito israelo-árabe
 
 Foi durante a minha estadia em Israel, em finais de Março de 1976, que ouvi falar pela primeira vez de Theodor Herzl. Num museu que então visitou a delegação da Assembleia Parlamentar do Conselho da Europa em que estava integrado, foi-nos mostrada a viatura em que ele se deslocava na Palestina, comprando terrenos para a futura instalação de colonos judeus. Isso passava-se nos últimos anos do século XIX, quando a Palestina, tal como todo o Médio Oriente, fazia parte do Império Otomano, com capital em Constantinopla, que os turcos tinham passado a chamar Istambul.
 

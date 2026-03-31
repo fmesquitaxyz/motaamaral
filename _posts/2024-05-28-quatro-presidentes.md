@@ -3,7 +3,6 @@ layout: default
 title: Quatro Presidentes
 date: 2024-05-28
 ---
-# Quatro Presidentes
 
 Foi um debate com nível aquele que decorreu no programa da RTP/Açores, emitido no Dia dos Açores ao serão, reunindo os quatro titulares sucessivos do cargo de Presidente do Governo da nossa Região Autónoma, ao longo dos 48 anos que já levamos de Autonomia Constitucional. Em rigor seria preciso contar ainda com o quinto titular do cargo, que foi Alberto Romão Madruga da Costa, que aliás me sucedeu imediatamente, mas ele já não se encontra entre nós. Os que marcaram presença deram provas de vida e boa saúde, o que é natural  nos mais novos e de recomendar no actual Presidente José Manuel Bolieiro, que tem sobre os ombros o peso das muitas expectativas do Povo Açoriano perante os desafios com que estamos todos confrontados. Está de parabéns a RTP/Açores por ter levado a cabo a organização de tal debate e o seu Director, Rui Goulart, que assumiu a tarefa de o coordenar!
 

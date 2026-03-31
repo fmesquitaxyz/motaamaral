@@ -3,7 +3,6 @@ layout: default
 title: Acesa controvérsia parlamentar há meio século
 date: 2024-03-05
 ---
-# Acesa controvérsia parlamentar há meio século
 
 Acabo de verificar que a semana agora iniciada se sobrepõe totalmente à primeira semana completa de Março de há 50 anos atrás: começou num Domingo, dia 3 e foi por aí adiante até ao Sábado, dia 9. Entre estas duas datas desenrolou-se na Assembleia Nacional então existente um debate dramático, em que de alguma forma se pôde já antecipar o que iria acontecer no 25 de Abril seguinte, isto é a queda do regime autoritário por total esgotamento e falta de apoio popular. 
 

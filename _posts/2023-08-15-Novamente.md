@@ -4,7 +4,6 @@ title: "Novamente, a \"Nona\"!"
 date: 2023-08-15
 author: "João Bosco Mota Amaral"
 ---
-# Novamente, a "Nona"!
 
 Já por mais de uma vez escrevi  neste lugar sobre a Nona Sinfonia, de Beethoven. Volto hoje ao assunto e talvez não seja a derradeira referência a  essa peça musical tão importante, verdadeiro cume da Arte dos Sons. 
 
@@ -27,3 +26,4 @@ A parte coral da Nona Sinfonia conclui com um comovido hino de significação cl
 Quando o concerto terminou e após longos aplausos, a orquestra, os solistas, o coro e o público presente na Sala de Concertos e na praça fronteira entoaram em conjunto o Hino da Europa. Cantavam todos em alemão; eu, em português dos Açores, que a Europa só se fortalece com a variedade e o igual respeito dos seus povos e respectivas línguas.
 
 João Bosco Mota Amaral
+

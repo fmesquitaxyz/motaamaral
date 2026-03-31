@@ -3,6 +3,7 @@ layout: default
 title: "Guerra atroz na terra de Jesus"
 date: 2023-12-24
 ---
+
 As imagens que diariamente nos chegam pela televisão, relativas ao conflito em curso no Médio Oriente, são verdadeiramente chocantes. Na terra por onde andou Jesus, há por estes dias guerra, destruição, morte, fome e sede, ódio à solta, como pensávamos já ser impossível existir.
 
 É especialmente comovedor o olhar atónito das crianças perante o triste e desolador espectáculo que lhes é proporcionado. Isto, claro, para as que sobrevivem aos cruéis bombardeamentos, porque são muito numerosas as que morrem soterradas entre os escombros dos edifícios derrubados e para essas já se acabaram todos os sofrimentos e também as esperanças que qualquer vida sempre alberga.

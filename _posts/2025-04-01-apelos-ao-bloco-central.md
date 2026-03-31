@@ -3,7 +3,6 @@ layout: default
 title: Apelos ao Bloco Central 
 date: 2025-04-01
 ---
-# Apelos ao Bloco Central
 
 Acabo de verificar que este texto vai sair nos jornais no dia 1 de Abril, e pode por isso ser confundido com qualquer das "petas",  que é costume serem divulgadas na Imprensa neste dia... Acontece, porém, que é mesmo verdade que têm aparecido nos últimos tempos, em simultâneo com a preparação do acto eleitoral marcado pelo Presidente da República para 18 de Maio próximo, diversos apelos ao entendimento entre os dois maiores partidos políticos, que se vão sucedendo na liderança das Maiorias e dos Governos no nosso País, e provenientes de personalidades de diferentes áreas de pensamento e até de independentes.
 
@@ -26,3 +25,4 @@ Ora, qualquer mexida na Constituição - e bem necessárias elas são, passados 
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

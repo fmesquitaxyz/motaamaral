@@ -3,7 +3,6 @@ layout: default
 title: Combater o populismo, prioridade imediata!
 date: 2023-02-07
 ---
-# Combater o populismo, prioridade imediata!
 
 Num interessante texto, dado à estampa no suplemento do domingo passado do jornal "Público", o actual Presidente da Assembleia da República, Augusto Santos Silva, embora invocando a sua qualidade de Membro da Comissão Política do Partido Socialista, apresenta os remédios que propõe contra o avanço da extrema-direita na Europa. Trata-se de um trabalho bem articulado e melhor escrito, que necessita reflexão e debate, para o qual me disponho a dar o meu modesto contributo, esperando que muitos mais venham a ocorrer, como merecem tanto o texto como o seu Autor. 
 

@@ -3,7 +3,6 @@ layout: default
 title: Mário Soares no seu centenário
 date: 2024-12-10
 ---
-# Mário Soares no seu centenário
 
 De bem poucas pessoas se celebra o centenário, a maior parte das vezes porque quando chega tal data já quase ninguém se lembra do que fizeram ou sequer de que existiram... Não é este o caso de Mário Soares, que nos deixou há ainda bem pouco tempo e ainda por cima o seu legado é reconhecido por toda a gente, simpatizantes ou não da personagem, influenciando a vida de Portugal e dos portugueses, actualmente e por muitas gerações, assim o esperamos.
 

@@ -4,7 +4,6 @@ title: "Uma solução para o conflito israelo-palestiniano "
 date: 2023-10-24
 author: "João Bosco Mota Amaral"
 ---
-# Uma solução para o conflito israelo-palestiniano
 
 Estou deveras horrorizado com as imagens de destruição, morte e sofrimento de pessoas inocentes, que todos os dias me entram pela casa dentro através da televisão, provenientes da Faixa de Gaza. Se Israel tinha razão para reagir por ter sido atacado com tanta crueldade pelos terroristas do Hamas, parece-me que a está perdendo por excesso de legítima defesa, ao manter bombardeamentos indiscriminados sobre alvos civis, sob pretexto de que só pretende atingir as sedes do Movimento que se lhe opõe e pretende erradicar do território que lhe foi concedido por decisão da Autoridade Internacional competente, a Assembleia Geral da Organização das Nações Unidas, nem mais nem menos.
 

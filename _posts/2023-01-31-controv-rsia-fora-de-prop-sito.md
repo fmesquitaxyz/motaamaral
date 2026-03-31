@@ -3,7 +3,6 @@ layout: default
 title: Controvérsia fora de propósito
 date: 2023-01-31
 ---
-# Controvérsia fora de propósito
 
 O burburinho que por aí vai acerca dos custos da organização em Lisboa da Jornada Mundial da Juventude soa aos meus ouvidos algum tanto exagerado e até despropositado.
 

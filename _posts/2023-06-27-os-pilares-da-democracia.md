@@ -3,7 +3,6 @@ layout: default
 title: Os pilares da Democracia
 date: 2023-06-27
 ---
-# Os pilares da Democracia
 
 Pediram-me para apresentar reflexões sobre o tema indicado em título. Para o efeito prevaleço-me da doutrina elaborada pelo Conselho da Europa, entidade à qual estive ligado durante quase 40 anos, tantos quantos durou a minha participação política na fase democrática da vida pública do nosso País. Primeiramente, frequentei os trabalhos da Conferência das Autoridades Regionais e Locais da Europa, onde encontrei aliás apoio para fazer valer as questões das regiões insulares, apresentando-as como aquilo que realmente são, envolvendo o respeito dos direitos humanos dos povos das ilhas; depois, fui membro da Delegação Portuguesa à Assembleia Parlamentar, desde o retomar das funções no Parlamento e até ao fim delas.
 

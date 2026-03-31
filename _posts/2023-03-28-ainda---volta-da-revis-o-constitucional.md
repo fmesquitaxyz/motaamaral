@@ -3,7 +3,6 @@ layout: default
 title: Ainda à volta da revisão constitucional
 date: 2023-03-28
 ---
-# Ainda à volta da revisão constitucional
 
 Pelo que vou lendo na Imprensa, a revisão constitucional prossegue a passo de caracol, com a Comissão Eventual para o efeito eleita no Parlamento, e que já vai no segundo Presidente, examinando e discutindo cada um dos preceitos contidos nos vários projectos submetidos à sua apreciação, aparentemente pelo menos sem qualquer pressa, como se fosse uma tarefa não para se fazer mas para se ir fazendo
 

@@ -3,7 +3,6 @@ layout: default
 title: Nos cinquenta anos da eleição da Assembleia Constituinte 
 date: 2025-04-22
 ---
-# Nos cinquenta anos da eleição da Assembleia Constituinte
 
 Fará na próxima sexta-feira, dia 25 de Abril, cinquenta anos da eleição da Assembleia Constituinte. É uma data memorável, cujo significado nunca é demais encarecer!
 
@@ -32,3 +31,4 @@ E por falar em revisão constitucional, a melhor maneira de celebrar os 50 anos 
 João Bosco Mota Amaral
 
 (Por convicção pessoal, o Autor não respeita o assim chamado Acordo Ortográfico.)
+

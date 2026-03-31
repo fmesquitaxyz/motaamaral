@@ -3,7 +3,6 @@ layout: default
 title: Começa um novo ano
 date: 2023-01-03
 ---
-# Começa um novo ano
 
 Estão as páginas dos jornais destes dias, de final de ano e começo de um novo, repletas de prognósticos sobre o que nos espera ao longo dos próximos doze meses, em geral de tom pessimista e traçando um horizonte bastante negro. E não é para menos, tendo em consideração os graves acontecimentos  dos últimos tempos, que viram designadamente a guerra voltar ao seio da Europa e com uma violência deveras aterradora!
 

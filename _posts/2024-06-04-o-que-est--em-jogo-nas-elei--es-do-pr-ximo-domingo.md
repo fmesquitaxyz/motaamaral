@@ -3,7 +3,6 @@ layout: default
 title: O que está em jogo nas eleições do próximo Domingo
 date: 2024-06-04
 ---
-# O que está em jogo nas eleições do próximo Domingo
 
 Por mais que se diga e repita que cada acto eleitoral tem um conteúdo e uma finalidade própria, que não permite tirar conclusões de natureza geral, a realidade é que todas as eleições, sejam elas autárquicas, regionais, nacionais ou, como no caso presente, europeias,  funcionam como verdadeiras sondagens ao sentir do Povo e por isso o resultado delas se reflecte sobre a situação política, nos seus diferentes níveis.
 

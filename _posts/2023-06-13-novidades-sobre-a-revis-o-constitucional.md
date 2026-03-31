@@ -3,7 +3,6 @@ layout: default
 title: Novidades sobre a Revisão Constitucional
 date: 2023-06-13
 ---
-# Novidades sobre a Revisão Constitucional
 
 Há  de facto novidades sobre a revisão constitucional em curso na Assembleia da República e, infelizmente, não são boas para nós!
 
